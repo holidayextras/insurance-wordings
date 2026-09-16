@@ -1,0 +1,3578 @@
+---
+id: "ergo-document-feedback/product-enhancements-july-2026/target-go-live-14-07-2026/backpacker/hx-backpacker-agg-pw-02-22-07-2026"
+title: "HX_Backpacker_AGG_PW_02_22-07-2026"
+source_path: "Ergo document feedback/Product Enhancements July 2026/Target Go Live 14 07 2026/Backpacker/HX_Backpacker_AGG_PW_02_22-07-2026.pdf"
+source_format: "pdf"
+source_sha256: "232c380c4c0c966ddeb24ff46996c3469ff3a2a913e7aa7d1dcf1d380d67e289"
+duplicate_of: null
+---
+
+# HX_Backpacker_AGG_PW_02_22-07-2026
+
+## Page 1
+
+Holiday Extras
+Backpacker Travel Insurance
+Policy Wording
+For policies issued from 22nd July 2026
+
+
+                                              www.holidayextras.co.uk
+                                          1
+
+## Page 2
+
+How to get the help you need
+Emergency Assistance and Claims contact numbers
+It will help if you have your policy number handy when you call.
+
+We have also included a section called ‘How to make a claim’ in this booklet. The section will tell you
+what you’ll need to do or provide if you need to make a claim.
+
+
+ 24/7 Emergency        24/7 Help in a medical emergency:
+ Helpline
+                               Tel: +44 (0) 1403 788 718
+
+                               Tel: +1-844-780-0494 (toll free from a landline in the USA or Canada)
+
+                               Tel: 00 1 819 780 0494 (from Mexico or calling from
+                               a UK mobile phone while in USA or Canada)
+ Non-emergency         Help with all non-emergency claims:
+ Claims
+                               Tel: +44 (0) 1403 286 547
+
+                               Email: claims@ergo-ias.co.uk
+                               Web/ online reporting: https://holidayextras.submitclaim.online/auth/
+                               policy/
+                               Write: Holiday Extras Travel Insurance Claims, ERGO IAS, PO Box 982,
+                               Leeds, LS1 9XL
+ AnywhereGP            You can contact AnywhereGP through the Air Doctor App or by contacting:
+ Additional help for
+ non-emergency                 Tel: +1-646-233-2756
+ claims
+                               WhatsApp: +972-549-958-615
+
+                               Email: support@air-dr.com
+                       Please see the next page for full details of the Air Doctor service and how to
+                       contact them.
+ Customer Service      If you need to change your details or have a question about your policy. Our
+ Team                  team are available Monday to Friday, 9am – 8pm, Saturday and Sunday 9am -
+                       5pm.
+                               Tel: 0333 188 0411
+
+                               Email: insurance.queries@holidayextras.com
+
+                               Web: www.holidayextras.co.uk/insurance-support
+ Legal costs and       For legal costs and expenses claims:
+ expenses claims
+                               Tel: 0117 934 0548 (local rate call)
+
+                               Email: new-claims@arag.co.uk
+ Gadget claims         For gadget claims:
+                               Tel: 0330 880 1753 (local rate call)
+
+                               Email: holidayextras.tiga@taurus.gi
+
+                               Web: https://tiga.taurus.claims
+
+
+                                                      2
+
+## Page 3
+
+AnywhereGP
+We’ve teamed up with Air Doctor to provide you with extra peace of mind when you travel.
+This service is automatically included in your policy.
+
+To use the service you need to register on the Air Doctor app, details of which would have been sent
+to you when you purchased this policy.
+
+For minor illnesses or injuries where you would normally see your General Practitioner and do not
+need to go to hospital, please use the Air Doctor app.
+
+Alternatively, please contact:
+
+
+         Tel: +1-646-233-2756                              WhatsApp: +972-549-958-615
+
+        Email: support@air-dr.com
+
+
+What you need to know:
+- Remember that AnywhereGP is for outpatient non-emergency medical help.
+- You can use the service up to 3 times per person for each policy period.
+- The cost of any prescriptions that are issued to you by an AnywhereGP medical specialist can be
+    claimed back when you get home. You won’t need to pay an excess on these claims.
+- If you need hospital treatment, contact our medical assistance team.
+- Cost of prescriptions related to a pre-existing medical condition. These costs will only be covered
+    if we have agreed to cover the medical condition.
+- Appointments with a psychologist or oncologist aren’t covered.
+- The service is only available for trips outside of the United Kingdom that are covered by your
+    policy.
+
+If you do use the air doctor service when travelling in a country that is not covered by your policy,
+we may ask you to pay back any costs that we’ve had to pay to provide the service to you or paid on
+your behalf.
+
+
+                                                   3
+
+## Page 4
+
+Welcome
+Thanks for choosing Holiday Extras Travel Insurance, it’s great to have you with us. Please take a little
+time to get to know your insurance policy and how we can help you.
+
+Your documents and how to check your cover
+It’s important to check that the cover you’ve bought meets your needs. You’ll need to have a look at
+the following documents to do this:
+
+ This policy wording booklet will show you:
+- how to make a claim, a complaint or contact us.
+- the table of benefits which shows you how much cover you have.
+- the details of what each section of your policy does and doesn’t cover.
+- what you must and mustn’t do to make sure that your policy is valid.
+- other important information.
+
+
+ Your policy schedule will show:
+- the date your cover starts and ends.
+- what level of cover you’ve chosen and what excess you must pay if you make a claim.
+- what optional extras you chose to buy.
+- the people insured under the policy.
+
+
+This policy wording and your policy schedule form the basis of your contract with us so let us know if
+you aren’t sure about something or need to change your cover.
+
+ You can contact our customer helpline.
+ The team are available to help you Monday to Friday, 9am - 8pm, Saturday and Sunday 9am - 5pm.
+
+        Email: insurance.queries@holidayextras.com                   Tel: 0333 188 0411
+
+        Web: www.holidayextras.co.uk/insurance-support
+
+
+If you need emergency assistance or want to make a claim, please go to the ‘How to make a claim’
+section where contact details are included for you.
+
+Accessible Format Documents
+Please give us a call if you need us to send you your policy documents in a different format, for
+example, large print or braille.
+
+
+                                                     4
+
+## Page 5
+
+What’s in this document
+    How to get the help you need                                  2
+- Emergency assistance and claims contact numbers               2
+- AnywhereGP Service (non-emergency medical assistance)       3
+
+    How to make a claim                                           7
+
+    Summary of your policy limits                                 9
+
+    Get to know your policy before you travel                    10
+- Your policy limits and excesses                             10
+- About your insurance contract                             10
+- Countries we do and don’t cover                              11
+- How long can your trips last                                11
+
+    Pre-existing medical conditions and if your health changes   13
+
+    Reciprocal health agreements                                 15
+
+    Words with special meanings                                  16
+
+    Policy Sections:                                             19
+1 Emergency medical and repatriation expenses                     21
+2 Cancellation                                                   24
+3 Cutting your trip short, loss of holiday and trip resumption   27
+4 Personal accident                                               31
+5 Personal belongings                                            33
+6 Gadget (optional extra)                                        36
+7 Personal money and event tickets                               43
+8 Passport and other documents                                   45
+9 Baggage delay on your outward journey                          46
+10 Missed departure and missed connection                        47
+11 Travel delay and abandonment                                  49
+12 Personal liability                                            51
+13 Legal costs and expenses                                      53
+14 Hijack                                                        58
+
+
+                                                   5
+
+## Page 6
+
+What this policy doesn’t cover                                            59
+
+    Other important information                                               62
+- Cancelling your policy                                                    62
+- Making a complaint                                                        62
+- Giving us the facts                                                     63
+- Who are your insurers                                                  64
+- Protecting your money and the Financial Service Compensation Scheme      65
+- The law that applies to your contract                                  65
+- Transfer of rights                                                        65
+- How we use your personal information                                    65
+
+    Appendix: Your policy tables                                              69
+- Activities and sports that we can and can’t cover                      70
+- Countries that we cover                                                  74
+
+
+                                                     6
+
+## Page 7
+
+How to make a claim
+If you need to make a claim there may be things that we’ll need you to do, or documents that
+you will need to give us.
+
+For all claims:
+- Let us know as soon as possible when something happens that could lead to a claim.
+- Have a look at ‘Emergency help and claims numbers’ for how to get in touch.
+- Have your policy schedule to hand. This will tell you your policy number and which sections you’re
+      covered for.
+- Keep hold of any invoices, receipts, medical reports or other documents. You will need to give these
+      to us if you need to make a claim.
+
+    If your claim is for:
+    Medical                 •   If you’re taken to a hospital or clinic whilst you’re away, call the
+    emergencies, costs          Emergency Helpline as soon as possible.
+    and help to bring       •   Make sure that you’ve the approval of the assistance company (the
+    you home                    Emergency Helpline) before incurring any costs over £500. Someone
+                                else can do this for you if you are too ill. We won’t pay for any avoidable
+                                extra costs incurred because you didn’t tell us.
+- Some countries have reciprocal health agreements with the United
+                                Kingdom. If this is in place, you should make sure you use the
+                                agreement to reduce the cost of your medical claim. If you do this, you
+                                won’t have to pay the excess on your medical claim. You can find out
+                                more about this in the ‘Reciprocal health agreements’ section.
+- Help us to get the information we need. This could include sending us
+                                medical reports or getting an examination done.
+
+    Cancelling your trip    •   Contact your travel or accommodation provider as soon as you know
+    before you leave            that your trip needs to be cancelled or cut short.
+    home, or cut your       •   Make sure that you’ve tried to get a refund from your travel provider (or
+    trip short                  service provider for things like excursions, pre-paid car parking) before
+                                making a claim with us.
+- You’ll need to keep any cancellation invoices and documents that show
+                                the costs of what you are trying to claim for.
+- If you’re cancelling or cutting your trip short because of medical reasons,
+                                you’ll need evidence from the medical practitioner treating you.
+- If you’re cancelling or cutting short your trip for another reason, we’ll
+                                need evidence of this.
+
+    Travel delay            •   If your flight is delayed, you may be entitled to compensation under EU
+    and abandoned               Regulation No. 261/2004 Air passengers rights. Make sure that you speak
+    journeys                    to your airline for details.
+- Keep hold of any confirmation of the delay (including the duration) so
+                                that you can pass this on to us.
+
+
+                                                      7
+
+## Page 8
+
+If your claim is for:
+ Lost or damaged         •   If your personal belongings are lost or damaged in transit, you’ll need
+ belongings and              to report it to the travel operator and get a ‘Property Irregularity Report’
+ gadget claims               before leaving the baggage reclaim area.
+- Report any theft of your belongings to the police within 24 hours of
+                             discovery or as soon as possible after that and get a police report.
+- We’ll need proof of ownership and value for your items. This could be
+                             bank statements, photos or receipts which help to show that you owned
+                             the lost or damaged items and how much you paid for them.
+
+ Delayed baggage         •   Report any delayed baggage to the travel operator and get a ‘Property
+                             Irregularity Report’ before leaving the baggage reclaim area.
+- Keep invoices or receipts for any essential items that you had to buy
+                             whilst your baggage was delayed.
+
+
+Your policy limits and excesses
+Policy limits are shown in the ‘Summary of your cover’ tables and again in the cover sections. These
+limits will show you how much your policy will pay up to for each type of claim.
+
+The tables will also show what excess applies to each type of claim. You can add our ‘excess waiver’
+option for an additional premium to remove these. Your policy schedule will show if you have this
+cover.
+- If we’re making a payment to you (such as paying you back for something you had to replace),
+    we’ll take the excess amount off the total we pay you.
+- If we’re paying a supplier (such as an airline or hospital), you’ll need to pay the excess amount
+    back to us.
+- Unless the excess is shown as ‘None’ in the summary of cover, or if you’ve paid to waive your
+    excess, the excess amount will apply against each claim. This is for each person claiming on
+    each trip.
+
+
+                                                   8
+
+## Page 9
+
+Summary of your cover
+
+                                                                      Adventure                            Adventure Plus
+Section of Cover                                       Policy Limit                    Excess*   Policy Limit                    Excess*
+1. Emergency medical and repatriation expenses         £7,500,000                      £150      £15,000,000                     £70
+- Hospital confinement benefit                         £20 per 24 hours up to £200     None      £30 per 24 hours up to £400     None
+- Mugging hospitalisation benefit                      £20 per 24 hours up to £200     None      £30 per 24 hours up to £400     None
+- Emergency dental treatment                           £250                            £150      £350                            £70
+- Additional travel and accommodation expenses         £1,500                          None      £3,000                          None
+- Funeral expenses abroad or cremation expenses
+                                                       £4,000                          None      £4,000                          None
+  abroad
+- UK prescriptions                                     £50                             None      £50                             None
+- UK physiotherapy and chiropractic care               £350                            None      £500                            None
+2. Cancellation                                        £2,000                          £150      £5,000                          £70
+3. Cutting your trip short, loss of holiday and trip
+                                                       £2,000                          £150      £5,000                          £70
+resumption
+4. Personal accident
+- Death: aged 18 - 65                                  £10,000                         None      £20,000                         None
+- Death: aged 17 and under or aged 66 and over         £1,500                          None      £2,000                          None
+- Disablement: aged 18 - 65                            £20,000                         None      £30,000                         None
+- Disablement: aged 17 and under or aged 66
+                                                       £1,500                          None      £2,000                          None
+  and over
+5. Personal belongings                                 £1,000                          £150      £3,000                          £70
+- Single item limit                                    £300                            £150      £400                            £70
+- Valuables                                            £300                            £150      £400                            £70
+6. Gadget (optional)
+- Accidental or malicious damage, loss or theft        £1,000                          £150      £2,000                          £70
+7. Personal money and event tickets
+- Personal money                                       £200                            £150      £300                            £70
+- Cash                                                 £200                            £150      £200                            £70
+- Event tickets                                        £200                            £150      £350                            £70
+8. Passport and other documents                        £200                            £150      £350                            £70
+                                                       Up to £30 after each 12 hours             Up to £50 after each 12 hours
+9. Baggage delay on your outward journey                                               None                                      None
+                                                       of delay up to £200                       of delay up to £300
+10. Missed departure and missed connection
+- Missed departure                                     £500                            £150      £1,000                          £70
+- Missed connection                                    £500                            £150      £1,000                          £70
+11. Travel delay and abandonment
+- Travel delay benefit                                 £30 every 12 hours              None      £50 every 12 hours              None
+- Maximum limit for travel delay benefit               £150                            None      £300                            None
+- Abandonment after 12 hours delay                     £2,000                          £150      £5,000                          £70
+12. Personal liability                                 £2,000,000                      £150      £2,000,000                      £70
+13. Legal costs and expenses                           £25,000                         None      £25,000                         None
+14. Hijack                                             £75 per 24 hours up to £750     None      £150 per 24 hours up to £1,500 None
+
+
+* Unless you've paid extra for the excess waiver option where no excess will apply.
+
+Remember to check that you have the cover that you need. Give our customer service team a call if you
+need any help.
+
+
+                                                                        9
+
+## Page 10
+
+Get to know your policy before you travel
+This section includes important information about your policy. Before you head off on your adventures,
+please take some time to get to know your policy. Just give us a call if you need any help.
+
+ Your check list:
+     Read your policy booklet and policy schedule to make sure you have the cover you need.
+     Remember not all sections are included automatically. Double check you’ve taken out any extra
+     cover that you need.
+     It’s important that you understand what you are and aren’t covered for, and what you need to
+     do to make sure your cover is valid. If you need any help, please contact us.
+     Each section of your policy booklet includes ‘We will pay’ and ‘We won’t pay’. There is also a
+     section called ‘What this policy doesn’t cover’ which applies to all sections.
+     Make sure that you’ve told us about any pre-existing medical conditions.
+     If your health changes, or the health of anyone insured on the policy, you’ll need to tell us.
+     If you don’t tell us, we might not be able to pay all or part of your claim.
+     Remember to check the ‘Hazardous activities and sports list’ at the back of this booklet. It will
+     tell you if your planned activity will be covered or not.
+     Check the ‘Countries we cover’ at the back of this booklet to make sure that your trip is covered.
+
+
+About your insurance contract
+Your policy schedule and policy wording form the basis of your contract with us and is based on the
+information you gave us.
+
+Incorrect information could mean that your premium is incorrect or that we won’t be able to pay all or
+part of your claim. Let us know as soon as possible if something isn’t right.
+
+All documents, emails and letters will be in English.
+
+ To be eligible for cover under this policy:
+- you are in the United Kingdom at the time of purchase.
+- your trip will start and end in the United Kingdom and you have not already started your trip.
+- you have an address in the United Kingdom and you must:
+- have lived there for at least 6 of the last 12 months; and
+- be registered with a General Practitioner there.
+- you must be aged 64 or under at the start date of your policy.
+- you must not be travelling against the latest Foreign Commonwealth and Development Office
+     (FCDO) advice.
+- you understand that there is no cover on this policy:
+- if you have purchased your insurance with the intention of making a claim; or
+- if anyone to be insured under the policy is aware of any circumstances which are likely to
+        lead to a claim being made.
+- you understand that there is no cover:
+- if you or anyone to be insured under this policy are travelling or planning to travel against
+        medical advice; or
+- to obtain medical treatment.
+
+ When booking your trip or purchasing this policy, whichever is later, you and anyone you’re
+ travelling with must be fit to travel. This includes being fit to take part in any activities and
+ excursions you’ve planned.
+
+
+                                                    10
+
+## Page 11
+
+Our part of the contract
+- We promise to act in good faith.
+- We will give you the insurance cover set out in your policy wording and policy schedule.
+
+Your part of the contract
+- Tell us the correct information to base your policy on, including any pre-existing medical
+        conditions.
+- Pay your policy premium.
+- Don’t do anything that would make a claim more likely or increase the cost of a claim.
+- Make sure that you’ve read your policy and understand what you’re covered for.
+- Tell us as soon as possible if there are any changes to the information you have given us. If you
+        don’t this could affect your policy or prevent us from paying all or part of your claim.
+
+
+    Countries we do and don’t cover
+
+    Countries we don’t cover
+    There are some countries or areas that are considered too dangerous for travel. We can’t cover you
+    if you choose to travel to areas where:
+- there is war and civil unrest; or
+- the Foreign, Commonwealth & Development Office (FCDO) has advised against all travel or all
+        but essential travel.
+
+    Visit https://www.gov.uk/foreign-travel-advice to check any countries or areas that you’re planning
+    to travel to.
+
+    Countries we cover
+    Your policy schedule will show you where you’re covered to travel to. This will be one of the
+    following groups:
+
+- United Kingdom.
+- Europe 1 (Europe exc. Spain, Cyprus, Malta, Greece and Turkey).
+- Europe 2 (Europe inc. Spain, Cyprus, Malta, Greece and Turkey).
+- Australia/New Zealand.
+- Worldwide but not including United States of America (USA), Canada, Mexico and the
+         Caribbean.
+- Worldwide including United States of America (USA), Canada, Mexico and the Caribbean.
+
+    You will find all the countries that we cover listed in the table at the back of this booklet. Make sure
+    you’ve checked your travel plans against this table ‘Countries that we do cover’.
+
+
+How long your trips can last
+The maximum trip length is 550 days.
+
+
+                                                       11
+
+## Page 12
+
+When your cover starts and ends
+
+    Claims can only be made against this policy where the insured event happens within the policy
+    period. The terms and conditions in force at the time of the insured event will apply.
+
+Cancellation cover:
+Cancellation cover for your insured journey:
+- starts on the issue date shown on your policy schedule; and
+- ends when you leave your home to start your insured journey.
+All other cover:
+- starts when you leave your home to start your insured journey; and
+- ends when you return to your home within the policy period to end your insured journey.
+
+All cover will stop at the end of the policy period, unless agreed by us in writing.
+
+Trip resumption following a trip interruption or voluntary break:
+In the event of trip interruption or a voluntary break, all cover ends when you return to the United
+Kingdom. Cover starts again when you leave the United Kingdom to resume your insured journey and
+ends when you return to your home to end your insured journey, provided both events are within the
+policy period.
+
+The policy covers you to return to the United Kingdom only once during the policy period due to either
+a trip interruption or a voluntary break. For example, if you return to the United Kingdom following a
+trip interruption the policy will not cover you if you return to the United Kingdom at a later date due
+to another trip interruption or a voluntary break.
+
+Automatic Extension of Cover
+If you need to extend your insured journey past the policy period because of an insured medical
+emergency, or other cause that’s insured under this policy, we will automatically extend your cover
+until:
+- you’re able to come home; or
+- you can be moved to a medical facility in the United Kingdom; whichever date falls first.
+
+Medical emergencies abroad and other insured causes
+If you have a medical emergency abroad, our assistance company and your treating doctor will decide
+when you’re fit to return to the United Kingdom. If you decide to return home after this time, all cover
+will end.
+
+If you don’t take the first reasonable travel arrangements to return to the United Kingdom, all cover will
+end.
+
+
+                                                     12
+
+## Page 13
+
+Pre-existing medical conditions and changes to
+your health
+It’s important that you tell us about any pre-existing medical conditions and any changes to your
+health. This applies to you, and anyone insured under the policy (insured person). It can impact your
+cover if you don’t.
+
+Telling us about your medical conditions
+Details of any conditions you’ve declared, and we’ve accepted will be shown on your policy schedule.
+Failure to declare medical conditions will affect any cover we provide and could prevent all or part of
+your claim being paid.
+
+What we mean by pre-existing medical conditions
+You should’ve declared any conditions when asked the questions below, and we would’ve let you
+know if we can provide cover.
+
+1. In the last 2 years, have you been prescribed medication, received treatment or had a consultation
+   (as an in-patient or an out-patient) with a doctor or hospital specialist for any medical condition?
+
+2.   In the last 5 years, have you been diagnosed with or treated for any of the following?
+- heart or respiratory conditions; or
+- circulatory conditions (e.g. strokes, high blood pressure, cholesterol); or
+- liver conditions; or
+- cancerous conditions; or
+- any mental health condition such as stress, anxiety, depression or eating disorders; or
+- drug or alcohol abuse.
+
+If you or any other insured person have a medical condition included under point 3 below, the policy
+won’t be right for you as we can’t provide cover for:
+
+3.   Any medical condition suffered by an insured person in which:
+- they failed to seek medical advice that’s necessary for the treatment of the condition; or
+- is under investigation; or
+- is awaiting investigation, medical procedures, in-patient hospital treatment or test results; or
+- they have been given a terminal prognosis for; or
+- they know they’ll need medical treatment during an insured journey; or
+- they are travelling abroad for medical treatment.
+
+
+                                                     13
+
+## Page 14
+
+Changes to your health
+If any of the following things happen after you buy your policy, you’ll need to call our customer
+helpline:
+- you’re diagnosed with a new medical condition.
+- you experience new or recurring symptoms.
+- you have an undiagnosed condition.
+- your doctor or consultant adds or changes your prescribed medication.
+- you receive inpatient medical treatment.
+- you’re waiting for a medical investigation, treatment or procedure.
+
+ You’ll need to call our customer helpline if this applies to you, or any insured person on the policy.
+
+        Tel: 0333 188 0411
+
+
+Our team will ask you for details about the change to your health. The change might mean:
+- we can continue your cover with no change to your premium.
+- you may need to pay more for your cover.
+- we might not be able to continue your cover.
+
+What happens next?
+If you’ve had to cancel your pre-booked trip because of health changes, please see the cover available
+under the 'Cancellation' section.
+
+If we can’t cover your pre-existing medical conditions, or you don’t want to pay the extra premium,
+you’ll have the choice of:
+- making a cancellation claim for any pre-booked trips; or
+- continuing your policy but without cover for your pre-existing medical conditions; or
+- cancelling your policy and receiving a proportionate refund. This is provided that you haven’t
+    made a claim or are about to.
+
+Remember to:
+- give us a call even if your doctor has said you’re well enough to travel as your cover could still be
+   impacted.
+- contact your travel providers to see if they can help you cancel or rearrange your trip.
+
+
+                                                    14
+
+## Page 15
+
+Reciprocal health agreements
+What are reciprocal health agreements?
+The United Kingdom has healthcare agreements with several countries around the world. If you’re
+a United Kingdom resident, these agreements mean that you may be entitled to necessary medical
+treatment at a reduced cost, or even for free.
+
+We recommend that you check if the country you’re travelling to has one of these agreements in place
+and what the requirements are before you leave the United Kingdom. You can find more information
+online at www.nhs.uk/using-the-nhs/healthcare-abroad/ or search for NHS Healthcare abroad.
+
+If you make a claim in one of these countries where you successfully applied for the reciprocal health
+agreement, then you won’t have to pay the excess under ‘Emergency medical and repatriation
+expenses’. For example, you’ve used your GHIC card for emergency treatment at a hospital in Spain.
+
+   Remember that if you’re admitted to hospital whilst abroad, you must contact the Emergency
+   Helpline as soon as possible.
+
+
+                                                   15
+
+## Page 16
+
+Words with special meanings
+Some words and phrases used in this document have special meanings. We have listed these words
+and their meanings below. Wherever you see these words in bold, this is what they mean.
+
+Some sections of cover will have additional words with special meanings that apply to that section.
+These will be included at the start of the section.
+
+
+Accident/Accidental
+Sudden and unexpected event or damage where the cause can be identified. This would not include
+anything caused deliberately or over a long period of time.
+
+Bodily Injury
+An injury caused by an accident, self-defence or exposure to something that could cause you physical
+injury.
+
+Business Trip
+A journey undertaken in relation to your employment or usual occupation.
+
+Catastrophe
+Events such as avalanche, earthquake, explosion, fire, flood, hurricane, landslide, tsunami, volcanic
+activity or outbreak of infectious disease (unless declared an epidemic or pandemic by the World Health
+Organisation).
+
+Colleague
+Any person from the same business as you. Where their absence for one or more complete days at a
+time as you prevents the effective running of that business.
+
+Couple
+You and your spouse or civil partner, or the person with whom you’re permanently living with in a
+marriage-like relationship.
+
+Event Ticket(s)
+Tickets or entry passes you have bought for a theme park, water park, exhibition, concert, theatre or
+sporting event.
+
+Excess
+The amount of money you’ll have to pay towards the cost of a claim. This amount will apply per
+person, per claim and per section.
+
+Excess Waiver
+The reduction of the excess to zero. You should check your policy schedule to see if you chose to pay
+extra and reduce your excess.
+
+Family
+You and your husband or wife, civil partner, or the person you permanently live with in a marriage-like
+relationship and up to five children (in total) who are your:
+- unmarried dependent children (including adopted, foster and stepchildren) aged 17 or under living
+    in the same household as you or living away while attending full-time education; and/or
+- if you’re divorced or separated, your natural children aged 17 or under.
+Children, as specified above, are only covered when travelling with you.
+
+
+                                                   16
+
+## Page 17
+
+Hazardous Activities and Sports
+Any pursuit where there is a recognised risk of injury listed in the tables in ‘Activities and sports that we
+can and can’t cover’.
+
+Home
+The place where you usually live in the United Kingdom.
+
+Illness
+A sudden and unexpected worsening in health, sickness or disease.
+
+Insured Journey
+A pre-booked leisure trip, starting and ending during the policy period. Your journey will only be
+covered until the end of the policy period.
+
+Insured Person / You / Your
+Any person named on the policy schedule who is eligible to be insured.
+
+Leisure Trip
+A journey solely for holiday or leisure purposes.
+
+Manual Work
+Work that is physical, including, but not limited to construction, installation, assembly and building
+work. This will include work that involves putting together, maintaining, repairing or using heavy
+electrical, mechanical or hydraulic machinery.
+
+Medical Practitioner
+A qualified medical physician, who is not:
+- an insured person; or
+- a relative; or
+- a colleague; or
+- any other person you’re travelling or staying with.
+
+Policy Period
+The period to which the insurance applies. This is shown on your policy schedule and this is from the
+date you buy the policy until the “Trip end date”.
+
+Pre-existing Medical Condition(s)
+Please go to the ‘Pre-existing medical conditions and changes to your health’ section. Our definition is
+included in ‘What we mean by pre-existing medical conditions’.
+
+Relative
+Your husband, wife, or civil partner, or the person with whom you are permanently cohabiting in a
+marriage-like relationship, your children (including adopted or foster children), your mother, father,
+sister, brother, grandmother, grandfather, grandchild, fiancé and next of kin, including the same in-law
+and step-relations.
+
+Terrorism / Terrorism Act
+The actual or threatened use of force or violence against persons or property, or commission of an
+act dangerous to human life or property, or commission of an act that interferes with or disrupts an
+electronic or communications system or network, undertaken by any person or group, whether or not
+acting on behalf of or in connection with any organisation, government, power, authority or military
+force, when any of the following apply:
+- the apparent intent or effect is to intimidate or coerce a government or business or to disrupt any
+    segment of the economy; or
+- the apparent intent or effect is to cause alarm, fright, fear of danger or apprehension of public
+
+
+                                                      17
+
+## Page 18
+
+safety in one or more distinct segments of the general public, or to intimidate or coerce one or
+    more such segments; or
+- the reasonably apparent intent or effect is to further political, ideological, religious or cultural
+    objectives, or to express support for (or opposition to) a philosophy, ideology, religion or culture.
+
+Trip Interruption
+Your temporary return home, or admission to a medical facility, in the United Kingdom before the
+scheduled end of your insured journey, as a result of:
+- your illness or bodily injury resulting in a valid claim for your emergency repatriation; or
+- you cutting your trip short.
+
+Trip Resumption
+You resuming your insured journey before the end of the policy period after a trip interruption.
+
+United Kingdom
+England, Scotland, Wales, Northern Ireland, the Channel Islands and the Isle of Man.
+
+Voluntary Break
+You interrupting your insured journey to return home due to:
+- homesickness; or
+- attending a family event or festivities; or
+- any other cause which is not subject to a claim under this policy.
+
+War and Civil unrest
+- Any sort of war (whether declared or not), hostility, invasion, revolution, act of foreign enemy, civil
+  war or unrest, rebellion, insurrection, mutiny, uprising or military usurped power, martial law, state
+  of siege or United Nations or NATO enforcement action; or
+- The explosion of war weapons(s), utilisation of nuclear, chemical or biological weapons or the
+  hostile act of an enemy foreign to the nationality of the insured person or of the country in which
+  the act occurs.
+
+We / Our / Us
+ARAG Legal Expenses Insurance Company Limited in respect of the ‘Legal costs and expenses’ section.
+Taurus Insurance Services Limited on behalf of Great Lakes Insurance UK Limited in respect of the
+‘Gadget’ section. ERGO Travel Insurance Services Ltd on behalf of Great Lakes Insurance UK Limited in
+respect of all other sections.
+
+
+                                                     18
+
+## Page 19
+
+Your Policy Sections
+This part of your policy wording will take you through your cover including:
+- your policy limits.
+- the standard excess that applies. Remember to check your policy schedule to see if you paid extra
+    to reduce your excess.
+- what we will and won’t pay for.
+- whether the cover is optional. You’ll need to check your policy schedule to see if you chose to take
+    out the extra cover.
+
+These policy sections are always included in your policy
+
+                Emergency medical and repatriation expenses
+ Section 1.     Help if you get sick or are injured while your away. The cover is designed to cover
+                your emergency medical bills and, if needed, get you home.
+
+                Cancellation
+ Section 2.
+                Refunding the cost of your trip and other expenses if you need to cancel.
+
+                Cutting your trip short and loss of holiday
+ Section 3.
+                Refunding the cost of unused accommodation or extra expenses to return home.
+
+                Personal accident
+ Section 4.     Provides a lump sum benefit following death, loss of limb or sight, or permanent
+                disablement caused by an accident whilst you’re away.
+
+                Personal belongings
+ Section 5.
+                Cover for your personal belongings if they are lost or stolen.
+
+                Personal money and event tickets
+ Section 7.
+                Cover for your personal money or event tickets.
+
+                Passport and other documents
+ Section 8.
+                Cover to replace your travel documents and pay for additional expenses.
+
+                Baggage delay on your outward journey
+ Section 9:
+                Cover for essentials if your hold or cargo baggage is delayed in getting to you.
+
+                Missed departure and missed connection
+ Section 10.
+                Helping to pay for extra costs you incur to get to your trip destination or back home.
+
+                Travel delay and abandonment
+                PProvides a cash benefit if your outward or return journey is delayed. If you need to
+ Section 11.
+                abandon your trip following a delay on your outward journey, it covers you for non-
+                refundable costs such as travel and accommodation.
+
+                Personal liability
+ Section 12.
+                Cover if you’re legally liable for causing injury or damage.
+
+                Legal costs and expenses
+ Section 13.
+                Cover for any legal costs you may be liable for.
+
+                Hijack
+ Section 14.
+                Cover if your plane or ship is hijacked.
+
+
+                                                    19
+
+## Page 20
+
+This section is optional, so is not automatically included. Check your policy schedule to see if
+you chose to take out this optional extra.
+
+               Gadget
+ Section 6.
+               Cover for theft, loss, or damage to your gadgets.
+
+
+                                                 20
+
+## Page 21
+
+Section 1: Emergency medical and
+repatriation expenses
+If you get sick or injured during your trip.
+
+This section provides insurance for emergency medical expenses if you fall ill or have an accident whilst
+on your insured journey.
+
+Check your policy schedule to see what level of cover you chose. Policy limits are per insured person,
+per insured journey.
+
+Summary of cover limits:
+                                                                      Adventure                          Adventure Plus
+Cover                                                  Policy Limit                  Excess*   Policy Limit                  Excess*
+
+Emergency medical and repatriation expenses            £7,500,000                    £150      £15,000,000                   £70
+
+Hospital confinement benefit                           £20 per 24 hours up to £200   None      £30 per 24 hours up to £400   None
+
+Mugging hospitalisation benefit                        £20 per 24 hours up to £200   None      £30 per 24 hours up to £400   None
+
+Emergency dental treatment                             £250                          £150      £350                          £70
+
+Additional travel and accommodation expenses           £1,500                        None      £3,000                        None
+
+Funeral expenses abroad or cremation expenses abroad   £4,000                        None      £4,000                        None
+
+UK prescriptions                                       £50                           None      £50                           None
+
+UK physiotherapy and chiropractic care                 £350                          None      £500                          None
+
+
+* Unless otherwise shown on your policy schedule.
+
+    Make sure you’ve read and understood ‘Pre-existing medical conditions and changes to your health’
+    and ‘Reciprocal health agreements’ sections.
+
+    This policy is designed to help with unexpected illness, death or injuries. It’s not a private medical
+    insurance policy.
+
+ We will pay:
+ Emergency medical costs
+   Medical and hospital expenses. This includes an ambulance to take you to the hospital.
+   Emergency dental treatment if you’re in pain. This includes emergency denture repair to reduce
+   pain when eating.
+   If you’ve a valid claim under this section of the policy. We’ll also pay the cost of prescriptions,
+   physiotherapy and chiropractic care to continue treatment when you return home.
+   The cost of bringing back your remains or ashes from abroad to the United Kingdom.
+
+ Travel and accommodation expenses
+    Extra travel and accommodation (room only) expenses for you and a relative or travelling
+    companion, to stay until you’re fit to return to the United Kingdom .
+    Travel (economy only) and accommodation (room only) for someone to travel from the United
+    Kingdom to stay with you and return home with you.
+    Return travel to the United Kingdom for you and a relative or travelling companion when
+    you’re fit to go home.
+
+
+                                                                       21
+
+## Page 22
+
+The cost of a medical escort on your return journey home.
+   Return travel to their home for your children under 18 years old if you’re unable to look after
+   them. We’ll arrange for someone to travel with them if no other responsible adult is available.
+   Taxi fares for your travel to and from hospital during your trip, relating to:
+- your admission; or
+- discharge or attendance for out-patient treatment; or
+- for the collection of medication prescribed for you by the hospital.
+
+Funeral expenses
+   Your funeral expenses or cremation expenses abroad.
+
+Other expenses
+   The cost of telephone calls between you, us or the Emergency Helpline including charges when
+   you receive calls on your mobile.
+
+Hospital confinement benefit
+   If you’re admitted to hospital or confined to your accommodation, we’ll pay you the amount
+   shown in the ‘Summary of cover limits’ table for every 24-hour period, until you’re discharged .
+   If you’re confined to a hospital following a mugging, we’ll pay you the amount shown in the
+   ‘Summary of cover limits’ table for every 24-hour period, until you’re released. This amount will
+   be on top of the standard hospitalisation benefit.
+
+
+ You must have an accepted claim under the ‘Emergency medical costs’ cover above to access the
+ benefits.
+
+
+We won’t pay:
+   Any medical bills or expenses to bring you home that are over £500, unless you’ve agreed with
+   us or our assistance company first.
+   Any claim arising directly or indirectly from a pre-existing medical condition that you didn’t tell
+   us about and we didn’t accept.
+   Pregnancy or childbirth costs if the expected due date is less than 12 weeks (16 weeks if multiple
+   birth) after the planned end of the trip.
+   Any cost of medication that you knew you’d need at the start of your trip.
+   Any medical costs that aren’t related to the illness or injury you’re making a claim for.
+   Any medical costs for treatment that can reasonably wait until you get home.
+   Any claims where you’ve taken part in excluded hazardous activities and sports, or those that
+   aren’t listed as being covered. This is unless we’ve agreed to cover you and it’s shown on your
+   policy schedule.
+   Costs that aren’t necessary for your treatment. An example would be the cost of a private room
+   if not medically needed.
+   New dentures, prosthetic limbs, hearing aids, contact or corneal lenses or prescription glasses.
+   The cost of any taxi fares or phone calls that aren’t mentioned in the ‘We will pay’ section.
+   Any food, drink or toiletries.
+   Any costs that occur after our medical advisor and your medical practitioner agree that you’re
+   fit to travel and can return home.
+
+
+                                                 22
+
+## Page 23
+
+Any emergency medical or dental costs incurred on an insured journey solely within the United
+   Kingdom.
+   Any costs once you’ve returned to the United Kingdom. This doesn’t apply to on-going
+   prescriptions, physiotherapy or chiropractic care.
+   Any costs raised after a period of 12 months or more from the date of your injury, illness or
+   death.
+   Any costs if you don’t:
+- get any recommended vaccinations or preventative medications before your trip.
+- follow the advice and directions of a medical practitioner or consultant before or during
+       your trip.
+   For anything mentioned in ‘What this policy doesn’t cover’.
+
+
+Special conditions:
+    All medical treatment must be prescribed or recommended by a medical practitioner.
+    You must tell the Emergency Helpline as soon as you know that you’ll:
+- need to be admitted to a hospital or clinic; and/or
+- incur costs over £500.
+If you don’t tell or delay telling us, we’ll only pay the costs we would have incurred if you had told
+us earlier.
+    Your treating medical practitioner and our medical advisers will decide when you’re fit to
+    travel. Once this is agreed, our assistance company might need to:
+- move you from one hospital to another; or
+- arrange for you to return to the United Kingdom.
+If you decide that you don’t want to be moved or return to the United Kingdom, your claim will be
+closed, and we won’t be liable for any more costs.
+    Any travel and accommodation expenses need to be approved by us or our assistance company.
+    You’ll need to make sure that:
+- as long as its medically safe, and if available, travel must be economy class; and
+- accommodation is to a similar standard to your original booking.
+    If you are repatriated and you don’t hold a valid return ticket, we will deduct from your claim an
+    amount equal to your original airline’s one way airfare. This will be the same class of ticket as
+    your outward travel, for the route used for your return to the United Kingdom.
+    You must obtain our prior agreement before incurring costs for physiotherapy and chiropractic
+    care in the United Kingdom.
+    We won’t pay unreasonable or unnecessary costs or expenses.
+For medical and hospital expenses in the USA, reasonable means costs for approved medical
+services and expenses that aren’t over 150% of the published medical US Medicare rates for the
+same or similar treatment.
+
+
+                                                 23
+
+## Page 24
+
+Section 2: Cancellation
+Refunding the cost of your trip and other expenses if you need to cancel.
+
+Check your policy schedule to see what level of cover you chose.
+The maximum we’ll pay is the policy limit. Limits are per insured person, per insured journey.
+
+Summary of cover limits:
+                                                      Adventure                       Adventure Plus
+Cover                                  Policy Limit               Excess*   Policy Limit         Excess*
+
+Cancellation                           £2,000                     £150      £5,000               £70
+
+
+* Unless otherwise shown on your policy schedule.
+
+This section provides cover if you need to cancel your trip because of the following reasons:
+
+1. The death, bodily injury or illness, as certified by a medical practitioner of:
+- you or anyone else named on your policy schedule; or
+- your relative; or
+- a colleague; or
+- a travelling companion or friend you’d arranged to stay with.
+2. You or your travelling companion needs to attend a court of law:
+- as a witness (but not as an expert witness); or
+- for Jury Service. You must have requested to defer service, and this must have been denied by
+        the jury summoning officer or clerk of the courts office.
+3. You or your travelling companion being members of the following services and pre-agreed leave has
+    been cancelled due to an emergency or a posting abroad:
+- Armed Forces; or
+- Police Services; or
+- Ambulance Service; or
+- Fire Service; or
+- Medical Services.
+4. You or your travelling companion having to stay home because it had been seriously damaged by:
+- fire or explosion; or
+- storm, flood or water damage; or
+- subsidence; or
+- burglary.
+
+Damage must have happened within the 7 days leading up to your trip, and we’ll need evidence of the
+damage.
+
+5. Involuntary redundancy of:
+- you; or
+- your travelling companion; or
+- your husband, wife, civil or cohabiting partner.
+
+This must have been notified after the policy was bought, or after the trip was booked, whichever was
+the later date.
+
+
+                                                       24
+
+## Page 25
+
+6. Where your passport or visa is stolen in a burglary that occurs within 7 days of your scheduled trip
+   departure date and you are unable to get a replacement in time for your trip.
+
+        If your passport or visa is stolen in a burglary within 8 and 21 days of your scheduled trip departure
+  date, we will pay for the cost of the 1 week Fast Track Service to replace your passport in lieu of
+  cancellation.
+
+7. The unexpected serious illness or injury of your pet cat or dog:
+- resulting in the need for life saving treatment; and
+- occurring within 21 days of your scheduled trip departure date.
+
+8. You being unable to travel due to the date of a child adoption proceeding being unexpectedly
+   scheduled to take place during a pre-booked trip.
+
+9. You discovering that you're pregnant after taking out this policy or booking a trip (whichever is later)
+   and where you:
+- have been advised not to travel by a medical practitioner; or
+- will be over 35 weeks’ pregnant at the end of the trip (or 31 weeks for a multiple pregnancy).
+
+
+ We will pay:
+ Up to the policy limits for the following unused and non-refundable costs of:
+    Pre-booked travel and accommodation expenses.
+    Pre-booked airport or port parking, car hire, airport lounge pass and excursions (including event
+    tickets).
+    Travel permission costs including:
+- visas.
+- ESTA (Electronic System for Travel Authorisation).
+- ESS (EU entry or exit system).
+- other travel permissions.
+    The cost of the 1 week Fast Track Service to replace your passport if it is stolen in a burglary
+    within 8 and 21 days of your scheduled trip departure date.
+
+   You must have already paid or be contracted to pay these costs.
+
+ We won’t pay:
+     For any cancellation claim for reasons not listed in this section under ‘We will pay’.
+     For any cancellation claim for events which you already knew about, or thought might happen:
+- when the trip was booked; or
+- when the policy was bought, whichever date is later.
+     For cancellation arising from pregnancy or childbirth:
+- if the expected delivery date is less than 12 weeks (16 weeks for a multiple birth) after the
+          scheduled end of the trip; or
+- a medical practitioner hasn’t certified that the cancellation is needed because of
+          complications of pregnancy or childbirth.
+     If you discover that you're pregnant after taking out this policy or booking a trip (whichever is
+     later) where you:
+- have been advised that you can travel by a medical practitioner; or
+- will be less than 35 weeks’ pregnant at the end of the trip (or 31 weeks for a multiple
+          pregnancy).
+     Unless you become pregnant after you have booked your trip or taken out this policy whichever
+     is later.
+
+
+                                                    25
+
+## Page 26
+
+For any additional costs resulting from you not cancelling your trip as soon as reasonably
+   possible, after you became aware of the need to cancel.
+   For any claim because of a failure to have the correct passport, visa, or other relevant travel
+   permissions for the trip.
+   For any claim where the carrier has refused to allow you to travel.
+   For any claim because of the failure to provide any service connected with your trip. This
+   includes error, omission, financial failure, or default of any provider. Providers include travel
+   agents, tour operators, or other companies you used to book the trip.
+   For any claim caused by the serious illness or injury of your pet cat or dog:
+- where the pet had a pre-existing medical condition that was directly related to the cause of
+       the claim; or
+- if the vet confirms that any treatment is not urgent or the illness is not life threatening.
+   Where your planned adoption proceeding was known to you prior to booking your trip or taking
+   out this policy whichever was later.
+   For any claim as a result of you not wanting to travel or due to your personal or financial
+   circumstances (other than as set out under this section).
+   For any claim caused by work commitment or amendment of your holiday entitlement by your
+   employer (other than as set out under this section).
+   For any claim as a result of your late arrival at the airport, port, or station after the check-in or
+   booking-in time.
+   For any claim for costs you’ve paid for other people that aren’t insured under this policy.
+   For any claim where you:
+- refused medical treatment; or
+- weren’t taking your prescribed medication correctly; or
+- were unable to take your medication with you because of transport or import restrictions.
+       For example, where a country doesn’t allow a type of medicine or you cannot take it on
+       an aircraft.
+   For any claim because you’ve accepted a hospital appointment, where you were already on a
+   waiting list:
+- when you booked your trip; or
+- when you bought the policy. Whichever is the later date.
+   For any claim arising from you losing your job due to your misconduct, you resigning or taking
+   voluntary redundancy.
+   For any losses which can be recovered elsewhere or you aren’t contractually liable for.
+   For any claim arising from volcanic eruption and/or volcanic ash.
+   For any claim arising from regulations or instructions by the Government or local authority of
+   any country. This includes travel restrictions that result in you being unable to go on your trip.
+   For anything mentioned in ‘What this policy doesn’t cover’.
+
+
+Special conditions:
+    As soon as you know that you will need to cancel your trip, you must tell your:
+- tour operator; and/or
+- travel agent; and/or
+- transport or accommodation provider.
+If you delay, the cancellation charges may increase, and we won’t cover the additional charges.
+    If you need to cancel your trip due to medical reasons, you must supply a medical certificate.
+    This certificate must:
+- be from a qualified medical practitioner; and
+- confirm that your condition prevents you from travelling.
+    If your claim is for any other covered reason, you’ll need to give us any evidence that we ask for.
+
+
+                                                  26
+
+## Page 27
+
+Section 3: Cutting your trip short,
+loss of holiday and trip resumption
+Refunding the cost of unused accommodation and excursions and
+helping with extra expenses to return home early.
+
+Check your policy schedule to see what level of cover you chose.
+
+The maximum we’ll pay is the policy limit. Limits are per insured person, per insured journey.
+
+Summary of cover limits:
+                                                                   Adventure                       Adventure Plus
+Cover                                               Policy Limit               Excess*   Policy Limit         Excess*
+Cutting your trip short, loss of holiday and trip
+                                                    £2,000                     £150      £5,000               £70
+resumption
+
+
+* Unless otherwise shown on your policy schedule.
+
+Some words have special meanings in this section. Wherever you see these words in bold,
+this is what they mean:
+
+Loss of holiday
+The days that your treating medical practitioner has confined you to:
+- hospital; or
+- hotel room; or
+- cabin
+due to your bodily injury or illness.
+
+A. Cutting your trip short and loss of holiday
+
+This section provides cover for:
+- loss of holiday; or
+- if you unexpectantly need to cut your trip short
+because of the following reasons:
+
+1.       The death, bodily injury or illness of:
+- you or anyone else named on your policy schedule; or
+- your relative; or
+- a colleague; or
+- a travelling companion or friend you’d arranged to stay with.
+
+2.       You or your travelling companion needs to attend a court of law:
+- as a witness (but not as an expert witness); or
+- for Jury Service. You must have requested to defer service, and this must have been denied by
+        the jury summoning officer or clerk of the courts office.
+
+3.       You or your travelling companion being members of the following services and pre-agreed leave
+      has been cancelled due to an emergency or a posting abroad:
+- Armed Forces; or
+- Police Services; or
+- Ambulance Service; or
+
+
+                                                                    27
+
+## Page 28
+
+- Fire Service; or
+- Medical Services.
+
+4.       You or your travelling companion having to stay home because it has been seriously damaged by:
+- fire or explosion; or
+- storm, flood or water damage; or
+- subsidence; or
+- burglary.
+
+Damage must have happened within the 7 days leading up to your trip, and we’ll need evidence of the
+damage.
+
+5.       Involuntary redundancy for:
+- you; or
+- your travelling companion; or
+- your spouse, civil or cohabiting partner.
+
+This must have been notified after the policy was bought, or after the trip was booked, whichever was
+the later date.
+
+6. The unexpected serious illness or injury of your pet cat or dog:
+- resulting in the need for life saving treatment; and
+- occurring within 21 days of your scheduled trip departure date.
+
+7. You having to cut your trip short to travel due to the date of a child adoption proceeding being
+         unexpectedly scheduled to take place during a pre-booked trip.
+
+
+ We will pay:
+ Up to the policy limits for the following unused and non-refundable costs of:
+    Pre-booked travel and accommodation expenses.
+    Pre-booked airport or port parking, car hire, airport lounge pass and excursions (including event
+    tickets).
+    Travel permission costs including:
+- visas.
+- ESTA (Electronic System for Travel Authorisation).
+- ESS (EU entry or exit system).
+- other travel permissions.
+
+   You must have already paid or be contracted to pay these costs.
+
+
+ We won’t pay:
+       For any claim not listed under ‘We will pay’ in this section.
+       Any loss of holiday claim that’s not caused by your own bodily injury or illness.
+       Any claim for events which you already knew about, or thought might happen:
+- when the trip was booked; or
+- when the policy was bought, whichever date is later.
+       Cutting your trip short or loss of holiday arising from pregnancy or childbirth:
+- if the expected delivery date is less than 12 weeks (16 weeks for a multiple birth) after the
+           scheduled end of the trip; or
+- a medical practitioner hasn’t certified that you must cut your trip short or suffer a loss of
+           holiday because of complications of pregnancy or childbirth.
+
+
+                                                    28
+
+## Page 29
+
+Any claim because of a failure to have the correct passport, visa, or other relevant travel
+     permission(s) for the trip.
+     Any claim where:
+- the carrier has refused to let you travel, or to continue to travel; or
+- a service provider (including accommodation) has refused to provide or continue to provide a
+           service.
+     Any claim because of the failure to provide any service connected with your trip. This includes
+     error, omission, financial failure, or default of any provider. Providers include travel agents, tour
+     operators, or other companies you used to book the trip.
+     For any claim caused by the serious illness or injury of your pet cat or dog:
+- where the pet had a pre-existing medical condition that was directly related to the cause of
+           the claim; or
+- if the vet confirms that any treatment is not urgent or the illness is not life threatening.
+     Where your planned adoption proceeding was known to you prior to booking your trip or taking
+     out this policy whichever was later.
+     Any claim because of you not wanting to travel or continue your trip due to:
+- your personal or financial circumstances (other than as set out under this section); or
+- a work commitment or amendment of your holiday entitlement by your employer; or
+- your employer not allowing or cancelling your holiday leave (other than as set out under this
+           section).
+     Any claim as a result of your late arrival at the airport, port or station after the check-in time.
+     Any claim for costs you’ve paid for other people that aren’t insured under this policy.
+     Any claim where you:
+- refused medical treatment; or
+- weren’t taking your prescribed medication correctly; or
+- were unable to take your medication with you because of transport or import restrictions.
+           For example, where a country doesn’t allow a type of medicine or you cannot take it on the
+           aircraft.
+     Any claim because you’ve accepted a hospital appointment, where you were already on a waiting
+     list:
+- when you booked your trip; or
+- when you bought the policy. Whichever is the later date.
+     Any claim arising from you losing your job due to your misconduct, you resigning or taking
+     voluntary redundancy.
+     For any losses which can be recovered elsewhere or you aren’t contractually liable for.
+     Any claim arising from volcanic eruption and/or volcanic ash.
+     Any claim arising from Government regulations or instructions by the Government of any country.
+     This includes delays or amendments to the booked trip due to Government action.
+     For anything mentioned in ‘What this policy doesn’t cover’.
+
+
+B. Trip resumption
+
+ We will pay:
+ In the event of trip resumption:
+     your reasonable additional travel and accommodation expenses (room only) of a similar standard
+     to the original booking, which you incur to return:
+- to the location you were repatriated from; or
+- where you cut your trip short from
+   in order to continue your insured journey.
+
+
+                                                   29
+
+## Page 30
+
+We won't pay:
+   Trip resumption:
+- within 7 days of the end of the policy period; or
+- following a voluntary break.
+
+
+Special conditions:
+    As soon as you know that you’ll need to cut your trip short, you must:
+- tell us or our assistance company and get approval before incurring any costs.
+        You also need to let us make any travel arrangements to bring you home.
+- tell your tour or transport operator, travel agent and/or accommodation provider.
+If you delay, the charges to cut your trip short may increase. We won’t cover the additional charges.
+    We’ll only pay for economy class tickets unless it’s medically necessary for other arrangements to
+    be made.
+    If you need to cut your trip short because of medical reasons, you must supply a medical
+    certificate. This certificate must:
+- be from a qualified medical practitioner; and
+- confirm that your condition prevents you from continuing your trip.
+    We’ll calculate claims for cutting short your trip or for loss of holiday on a pro rata basis. This
+    means that we’ll consider the number of complete days of your trip that you haven’t used
+    because you’ve:
+- been in hospital abroad; or
+- been confined to your accommodation abroad for medical reasons; or
+- been repatriated to the United Kingdom; or
+- already arrived in the United Kingdom following repatriation or trip interruption.
+    If your claim is for any other covered reason, you’ll need to give us evidence of this.
+    For a voluntary break, cover will restart when you leave the United Kingdom. We won't pay any
+    additional expenses incurred to resume your insured journey.
+    For trip resumption where you resume your insured journey following a voluntary break,
+    you and your travelling companion(s) must be fit to travel and participate in any activities and
+    excursions that you've planned during your trip.
+    The maximum amount we'll pay in total for cutting your trip short, loss of holiday and trip
+    resumption claims combined is the amount shown in the 'Summary of cover limits'.
+
+
+                                                 30
+
+## Page 31
+
+Section 4: Personal accident
+Covering you for death, injury or disablement.
+
+Check your policy schedule to see what level of cover you chose. Policy limits are
+per insured person, per insured journey.
+
+Summary of cover limits:
+
+
+                                                              Adventure                      Adventure Plus
+Cover                                          Policy Limit               Excess   Policy Limit         Excess
+
+Death: aged 18 - 65                            £10,000                    None     £20,000              None
+
+Death: aged 17 and under or aged 66 and over   £1,500                     None     £2,000               None
+
+Disablement: aged 18 - 65                      £20,000                    None     £30,000              None
+Disablement: aged 17 and under or aged 66
+                                               £1,500                     None     £2,000               None
+and over
+
+
+Some words have special meanings in this section. Wherever you see these words in bold,
+this is what they mean:
+
+Disablement
+- Loss of limb; or
+- Loss of sight; or
+- Permanent total disablement.
+
+Loss of Limb
+- A hand, arm, foot or leg permanently severed at or above the wrist or ankle.
+- The permanent and total loss of use of a hand, arm, foot or leg.
+
+Loss of Sight
+Where a consultant ophthalmologist certifies you as severely sight impaired by completing the
+Certificate of Vision Impairment or equivalent in your home area.
+
+Permanent Total Disablement
+Physical Impairment which means that you’re not able to work.
+
+It must be confirmed by an independent specialist medical practitioner that there is no prospect of
+recovery or improvement.
+
+
+ We will pay:
+        A fixed payment dependant on age. Policy limits are shown in the ‘Summary of cover limits’
+        table.
+
+
+ We won’t pay:
+        Any claim from an insured journey solely within the United Kingdom.
+        For any claim arising from death or disablement that happens more than one year after the
+        original accident.
+
+
+                                                               31
+
+## Page 32
+
+For death or disablement caused by:
+- mental or psychological trauma; or
+- nervous shock; or
+- sickness, disease or any naturally occurring condition; or
+- degenerative disease; or
+- the ingestion of any substance.
+   For any claim caused by an accident while you’re engaging in hazardous activities and sports
+   which are:
+- specifically excluded; or
+- not listed as covered activities, unless agreed by us in writing; or
+- listed as a covered activity but does not include cover for personal accident.
+   For any claim caused by an accident whilst you’re using a motorcycle, either as a passenger or
+   rider.
+   For any claim where you take part in hazardous activities and sports listed as being excluded
+   or not listed as covered. This is unless agreed by us and the specific activity or sport is shown on
+   your policy schedule.
+   For anything mentioned in ‘What this policy doesn’t cover’.
+
+
+Special conditions:
+   If a claim is accepted, we’ll pay the policy limit as follows:
+- payment will be made to you following a claim for disablement.
+- payment will be made to your legal representatives in the event of your death.
+   Where an accident leads to accepted claims for your disablement and subsequent death.
+   We’ll pay either the policy limit for disablement or death, whichever is higher, but not both.
+   The maximum amount in total we’ll pay is the disablement policy limit. This applies even if you
+   suffer more than one form of disablement.
+   Disablement is assessed as soon as the final consequences of the accident can be medically
+   determined. This will not be any later than 12 months after the date of the accident.
+   If you disappear and a death certificate hasn’t been issued, the following will happen:
+- we’ll need to wait for a suitable period of time and review all available evidence.
+- if we think a death has happened following an accident, we’ll pay the policy limit to your
+        legal representative.
+- payment of the benefit will need to be re-paid to us if a death hasn’t happened, or if the
+        cause wasn’t an insured accident.
+   Existing physical impairments won’t be considered when we review claims under this section.
+   You, or in the case of your death, your legal representative, will need to give us:
+- Medical reports.
+- Any other information that we ask for, including medical records and death certificates.
+   Reduced policy limits apply to persons aged 17 and under or aged 66 and over on the date the
+   accident occurs. These limits are shown in the ‘Summary of cover limits’ table.
+
+
+                                                  32
+
+## Page 33
+
+Section 5: Personal belongings
+Cover for your personal belongings on your trip if they are lost,
+stolen or damaged.
+
+Check your policy schedule to see what level of cover you chose. Policy limits are per insured person,
+per insured journey.
+
+Summary of cover limits:
+                                                          Adventure                       Adventure Plus
+Cover                                      Policy Limit               Excess*   Policy Limit         Excess*
+
+ Personal belongings                        £1,000                    £150      £3,000               £70
+
+ Single item limit                          £300                      £150      £400                 £70
+
+ Valuables                                  £300                      £150      £400                 £70
+
+
+* Unless otherwise shown on your policy schedule.
+
+Some words have special meanings in this section. Wherever you see these words in bold,
+this is what they mean:
+
+Gadget
+- Mobile phones.
+- Laptops, tablets and e-readers.
+- Portable games consoles.
+- Health and fitness trackers including smart watches.
+- Video cameras, cameras and lenses.
+- Accessories including headphones, speakers and navigation devices.
+
+Golf Equipment
+Golf clubs, golf bag, non-motorised golf trolley and golf shoes.
+
+Personal Belongings
+Personal effects, clothing, gifts, valuables and bags you take on your trip.
+
+Single Item Limit
+This is the maximum we’ll pay for any one item, pair or set of items.
+
+Sports Equipment
+Golf Equipment and those articles which are usually worn, carried or held in the course of participation
+in a recognised sport.
+
+Valuables
+- Jewellery and watches.
+- Items made from precious metals.
+- Precious or semi-precious stones.
+- Antiques, musical instruments or furs.
+
+  We will pay:
+        The cost to replace or repair your personal belongings if they're damaged, lost or stolen, subject
+        to wear and tear and depreciation. If the item is less than 1 year old at the time of the incident any
+        claim will be considered on a “new for old” basis.
+
+                                                           33
+
+## Page 34
+
+We won’t pay:
+  Any claim where your personal belongings have been taken by officials such as customs
+  officers or the police.
+  Any claim for damage by normal wear and tear, including:
+- anything that happens gradually over time; or
+- moth or vermin damage; or
+- anything caused by atmospheric or climatic conditions.
+  Any damage caused by the process of cleaning, dyeing, repairing or restoring.
+  Any damage caused by scratching or denting unless the item has become unusable due to
+  this.
+  Any damage caused by leaking powder or fluid within your baggage.
+  Reduction in an items value.
+  Any amount over the single item limit as shown in the table in this section, for any one item, pair,
+  or set of items that belong together or can be used together.
+  Any amount over the total valuables limit as shown in the ‘Summary of cover limits’ table in
+  this section.
+  Any loss or theft of items which are then recovered.
+  Any damage caused by mechanical or electrical breakdown.
+  Any claim where you haven’t looked after your personal belongings. This includes:
+- keeping them in your line of sight if in a public place; or
+- securing your belongings in your accommodation when you’re not there; or
+- packing any fragile items carefully when travelling.
+  Loss or damage to personal belongings (but not valuables) from an unattended vehicle
+  unless:
+- between the hours of 09:00 and 21:00; and
+- locked in the boot, covered luggage area or locked glove compartment; and
+- where there is physical evidence of forcible and violent entry.
+  Loss or damage to valuables from unattended vehicles.
+  Loss or damage if your belongings are stored on a roof or boot luggage rack.
+  Loss or damage if you’ve left your belongings with anyone who isn’t:
+- a family member; or
+- a travelling companion; or
+- someone who has official responsibility for safekeeping your property.
+  Loss or damage to:
+- gadgets.
+- fragile items.
+- sports equipment whilst in use or bicycles.
+- winter sports equipment.
+- anything connected to your business or employment.
+- glasses, contact lenses, hearing aids or prosthetic limbs.
+  Loss or damage to valuables unless:
+- they are kept on your person or hand luggage; or
+- stored in a safety deposit box, safe or similar. If these are not available, they must be kept
+      secure in your locked accommodation.
+  Any items which are borrowed, rented or not owned by you.
+  For anything mentioned in ‘What this policy doesn’t cover’.
+
+
+                                                34
+
+## Page 35
+
+Special conditions:
+   If we’ve paid a claim for lost or stolen belongings and these items are later recovered undamaged,
+   you’ll need to pay us back the claim amount within 14 days of the recovery.
+   If you need to claim, you’ll need to:
+- send us proof of any damage such as photos or damage reports.
+- you’ll need to keep any damaged items. We may choose to repair items rather than replace.
+- send us proof of purchase and value such as a receipt.
+   If an airline has lost your checked-in baggage they will wait for 60 days before sending you
+   confirmation. Once you have this, you’ll need to send it to us before you can make a claim.
+   If we’ve already paid a claim under the ‘Baggage delay on your outward journey’ section, and
+   your belongings are declared as lost, we’ll deduct what we’ve already paid you from the claim
+   payment.
+   For any loss or theft you must:
+- report it to the police within 24 hours of discovery or as soon as possible after that; and
+- get a written police report.
+   You’ll need to report any loss or damage to your travel operator or carrier. If travelling by air,
+   this will be called a Property Irregularity Report (PIR).
+
+
+                                                35
+
+## Page 36
+
+Section 6: Gadget (optional)
+If your device is lost, stolen or damaged.
+
+This section only applies if 'Gadget' cover is shown on your policy schedule.
+
+Check your policy schedule to see what level of cover you chose. Policy limits are per insured person,
+per insured journey.
+
+Summary of cover limits:
+
+
+                                                               Adventure                       Adventure Plus
+Cover                                           Policy Limit               Excess*   Policy Limit         Excess*
+
+Accidental or malicious damage, loss or theft   £1,000                     £150      £2,000               £70
+
+
+* Unless otherwise shown on your policy schedule.
+
+Some words have special meanings in this section. Wherever you see these words in bold,
+this is what they mean:
+
+Accidental Damage/ Accidentally Damaged
+The unexpected damage to your gadget which means it cannot be used or is unsafe to use. The
+damage must be sudden and unintentional. This includes damage to screens and damage resulting
+from sudden and unexpected damage caused by liquid.
+
+Business
+A company where you are an owner, director or employee of that company.
+
+Claims Administrator
+Taurus Insurance Services Limited. Suite 2209-2217 Eurotowers, Europort Road, Gibraltar.
+
+Custom Built
+A complete computer or laptop made from components supplied and assembled by qualified engineers
+at a United Kingdom VAT registered company, or the equivalent tax registration if purchased overseas.
+
+Gadget/ Gadget(s)
+The item(s), excluding accessories which belong to:
+1.       You; or
+2.      A business where you have the relevant authority and responsibility to use and insure the gadget(s)
+     owned by the business.
+Confirmation of this will be required in the event of a claim.
+
+For the purpose of this policy a gadget can be any of the following items:
+Mobile Phones, Smart Phones, Laptops (including custom built), Tablets, Digital Cameras, Games
+Consoles, Video Cameras, Camera Lenses, Bluetooth Headsets, Bluetooth Speakers, Satellite Navigation
+Devices, E-Readers, Head/Earphones, Smart Watches or a wrist worn Health and Fitness Tracker.
+
+
+                                                                36
+
+## Page 37
+
+Criteria: We can only insure gadget(s) that are:
+1.      Purchased new or refurbished from a United Kingdom VAT registered (or the equivalent tax
+     registration if purchased overseas) company, and supplied with a proof of purchase; or
+2.      Purchased second hand or gifted to you, provided that you have the original proof of purchase
+     (which corresponds to the criteria above) and a signed letter from the original owner confirming that
+     you own the gadget(s). The original proof of purchase or letter must include the following details
+     of your gadget(s):
+a.       Either the IMEI or serial number (whichever is applicable);
+b. The make and model;
+c. The sale price (your purchase price);
+d. Confirmation that the gadget(s) were in full working order at the time of sale.
+
+Loss
+Means that the gadget has been accidentally left by you in a location and you are permanently
+prevented from using it.
+
+Malicious Damage
+The intentional or deliberate actions by a person who is not insured under this policy, which causes
+damage to your gadget(s) which means it cannot be used or is unsafe to use.
+
+Manufacturer Security
+The inbuilt security function of your gadget(s). For example Apple’s ‘Find My’ or Google’s ‘Find my
+Device’.
+
+Proof of Purchase
+The original printed receipt, or a similar electronic record, that can be sent to us or displayed in its
+original format, not handwritten, provided at the original point of sale that gives details of the gadget(s)
+bought and helps prove that you are the legal owner the gadget(s) and the age of the gadget(s).
+
+The document should include confirmation of the IMEI or serial number of the gadget(s), the purchase
+date, the purchase price, and detail the United Kingdom VAT-registration number of the company (or
+the equivalent tax if purchased overseas).
+
+For gadget(s) that are gifted or given to you - we will require the original purchase receipt, as detailed
+above, along with a signed letter from the original owner confirming that You own the gadget(s).
+For the purchase of second-hand gadget(s) - we will require the original purchase receipt, as detailed
+above, along with evidence of resale. A printed receipt or electronic record provided by a retailer or
+person selling the second-hand gadget(s) is not acceptable as proof of purchase.
+Where the original proof of purchase is not available, we may consider alternative proof of ownership.
+
+Proof of Usage
+Evidence that shows your gadget has been in use before the event which leads to the claim. Where the
+gadget is a mobile phone, or other gadget that has the option to use a SIM card, this evidence can be
+obtained from your network provider. For other gadgets, such as laptops, in the event of an accidental
+damage claim this may be determined through inspection by our repairers.
+
+Purchase Price
+The sale price detailed on the original proof of purchase.
+
+
+                                                     37
+
+## Page 38
+
+Taurus Warranty
+The period where the Claims Administrator will resolve any defects in materials and workmanship
+when they repair or replace your gadget(s) in the event of a claim, when your gadget(s) is used
+normally in line with the manufacturer's guidelines. For repairs the Taurus warranty is 3 months
+and for a replacement the Taurus warranty is 12 months. This warranty will also include the costs
+associated with transporting the device to and from our repair centre.
+
+The Taurus warranty does not cover wear and tear, damage by computer viruses, normal maintenance,
+accidental damage or any loss that is not the normal result of the gadget(s) fault.
+
+Theft
+The taking of the gadget(s) by a third party with the intention of permanently depriving you of it, using
+force, threat of violence or by pickpocket.
+
+Unattended
+Means that the gadget(s) are neither on your person or within your sight and/or reach.
+
+Water-based activities
+Activities and sports that take place on or in water, for example swimming, diving, boat-rides,
+jet skiing.
+
+Your Cover
+This section of the policy sets out the cover we provide for your gadget(s) against theft, loss,
+accidental damage and malicious damage to each insured person in total per insured journey, up to
+the sums insured shown in the ‘Summary of cover limits’. The gadget(s) must be in good condition and
+full working order at the start of your insured journey.
+
+A. Accidental Damage.
+
+ What we will cover if your claim is accepted
+ 1. We will repair or replace your gadget(s) if it is accidentally damaged.
+ 2. We will repair or replace your gadget(s) if it is damaged as a result of accidentally coming into
+    contact with any liquid.
+
+
+ What we will not cover under sub-section A.
+ 1. Accidental damage caused by any person not named on your policy schedule.
+ 2. Liquid damage suffered whilst you are participating in water-based activities.
+ 3. Accidental damage of the gadget(s) where it is stored anywhere out of your immediate control.
+    This includes as checked-in baggage or in bus, coach or train luggage compartments.
+ 4. Accidental damage of the gadget(s) where it is stored in overhead storage on a plane.
+ 5. Any damage unless the damaged gadget(s) is provided for repair to our approved repairers.
+ 6. Repairs, or other costs for repairs carried, out by anyone not authorised by us.
+ 7. Cosmetic damage to the gadget(s) that does not stop the gadget(s) from working correctly. For
+    example, marring, scratching and denting.
+
+
+                                                   38
+
+## Page 39
+
+B. Loss.
+
+ What we will cover if your claim is accepted
+ 1. If you accidentally lose your gadget, we will replace it.
+
+
+ What we will not cover under sub-section B.
+ 1. Loss of your gadget(s) which has not been reported to the local Police authorities and, if
+    necessary, your network provider within 24 hours of discovering the loss.
+ 2. Loss of the gadget(s) where it is stored anywhere out of your immediate control. This includes
+    as checked-in baggage or in bus, coach or train luggage compartments.
+ 3. The loss of your gadget(s) where the manufacturer security is not enabled throughout the
+    insured journey, including at the time of the loss.
+ 4. The manufacturer security must remain enabled, and your gadget must remain associated with
+    your manufacturer security account, throughout the loss claims process.
+
+
+C. Malicious Damage.
+
+ What we will cover if your claim is accepted
+ 1. If your gadget suffers malicious damage, we will repair or replace it. Where only part or parts of
+    your gadget have been damaged, we will only replace that part or parts.
+
+
+ What we will not cover under sub-section C.
+ 1. Malicious damage caused by you or any other insured person(s).
+ 2. Repairs, or other costs for repairs carried out by anyone not authorised by us.
+
+
+D. Theft.
+
+ What we will cover if your claim is accepted
+ 1. If your gadget is stolen, we will replace it.
+
+
+ What we will not cover under sub-section D.
+ 1. Theft of your gadget(s) which has not been reported to the local Police authorities and, if
+    necessary, your network provider within 24 hours of discovering the incident.
+ 2. Theft of the gadget(s) where it is stored anywhere out of your immediate control. This includes
+    as checked-in baggage in bus, coach or train luggage compartments.
+ 3. The theft of your gadget(s) where the manufacturer security is not enabled throughout the
+    insured journey, including at the time of the theft.
+ 4. The manufacturer security must remain enabled, and your gadget must remain associated with
+    your manufacturer security account, throughout the theft claims process.
+
+
+                                                    39
+
+## Page 40
+
+What we will not cover applying to all sub-sections
+We will not pay for:
+
+1.      Any claim for a device which is not shown in the definition of a gadget above.
+2. Any claim where you have committed fraud or provided misleading information or are unable to
+     give us complete details about the circumstances of the claim.
+3. Any claim where you cannot provide proof of purchase.
+4. Any claim where proof of usage cannot be given (this applies where the gadget is a SIM-enabled
+     device or a laptop/tablet where user history is available).
+5. Any claim where the manufacturer security is not switched on at the time of theft or loss or where
+     it has been switched off before the claims process has completed.
+6. Where the gadget has been stolen from any motor vehicle or building, unless all protections are
+     in operation (including those to prevent unauthorised keyless entry to vehicles) and the gadget(s)
+     is hidden out of sight so that forced and violent entry causing damage is required. Evidence of the
+     thief’s damage must be provided with your claim.
+7. Any loss, theft or accidental damage to the gadget as a result of confiscation of detention by
+     customs, other officials or authorities.
+8. Any claim where you knowingly leave your gadget somewhere unattended and it is at risk of being
+     lost, stolen or damaged. For example, where your gadget is left at the side of a sports pitch whilst
+     you are participating in the sport.
+9. Any claim where the gadget was not in good condition and in full working order at the time you
+     start your trip.
+10. Any claim where you have failed to take precautions to prevent damage, theft or loss. This will
+     include, but not limited to:
+    a. Not using your gadget in line with the manufacturer’s instructions; and
+    b. Not handing your gadget to a person who is not known to you.
+11. Any claim where the IMEI/Serial number cannot be identified from your gadget.
+12. Accessories.
+13. Any claim that is only for parts of your gadget that would be considered a consumable e.g.
+     batteries.
+14. Any claim where there is evidence that the damage, theft or loss occurred before your trip started.
+15. Loss, damage, destruction, distortion, erasure, corruption or alteration of electronic data from any
+     computer virus or similar mechanism or as a result of any failure of the Internet, or loss of use,
+     reduction in functionality, cost, expense of whatsoever nature resulting therefrom, regardless of any
+     other cause or event contributing concurrently or in any other sequence to the loss.
+16. Any claim resulting from an unlawful act. This will include, but not limited to:
+    a. Any unlawful act deliberately or intentionally committed by an insured person; or
+    b. The operation of law or the order of any court; or
+    c. Civil or criminal proceedings against anyone on whom your insured journey depends.
+17. Any modifications that have been made from the original specifications of the gadget. This would
+     include things like adding gems, precious metals or unlocking your gadget from a network.
+18. Loss of any software or firmware failures.
+19. Any expense incurred as a result of not being able to use the gadget, or any loss other than the
+     repair or replacement costs of the gadget.
+
+Additional conditions applying to this section
+
+
+                                                    40
+
+## Page 41
+
+Claims Procedure
+How to make a claim
+Please read our claims guide and complete our claim form found at https://tiga.taurus.claims
+Or you can contact the Claims Administrator on 0330 880 1753 or holidayextras.tiga@taurus.gi.
+
+You must: (Failure to observe these may invalidate your claim)
+
+1.      Report the theft or loss of your gadget to your network provider within 24 hours of discovery so
+     they can blacklist your handset/item (where this is applicable).
+2.      Report the theft or loss of your gadget to the Police, local to where the theft or loss happened,
+     within 24 hours of discovering the theft or loss and get a crime reference number and a copy of the
+     police report.
+3.      Provide the proof of purchase of the gadget for which you are claiming. Such proof of purchase
+     must evidence that you own that particular gadget, which may include the IMEI number or serial
+     number (where applicable in respect of mobile phones and laptops) and other identifying details
+     where appropriate.
+4.      Provide the proof of usage (in respect of SIM-enabled devices) from your network provider that
+     confirms the gadget(s) has been in use since the start of your trip and up to the event giving rise to
+     the claim.
+5.      Complete and return any claim form or documents as required by the Claims Administrator as
+     soon as possible and send other requested documents to support your claim. For example photo ID
+     or proof of address.
+6.      Not attempt to repair the item yourself or use an unauthorised repairer or this will invalidate the
+     cover.
+7.      Not format your gadget(s) in a way that makes it impossible to get the date it was last used.
+8.      Pay the excess as requested by the Claims Administrator.
+9.      Give details of any other contract, guarantee, warranty or insurance that may apply to the gadget(s)
+     including, for example, household insurance (where appropriate a proportion of the claim may be
+     recovered from these insurers).
+
+Repair and Replacement Equipment
+1.      Where we replace your gadget, we will replace it with a gadget of the same specification or the
+     equivalent value taking into account the age and condition of the gadget. Replacements will be pre-
+     owned, refurbished or remanufactured (not brand new). This is not a new for old policy. (Gift cards
+     or vouchers may be used as an alternative method of claims settlement at our full discretion).
+2.      Where we send you a replacement or repaired gadget, this will only be sent to an address in the
+     United Kingdom.
+3.      It may not always be possible to replace your gadget with the same colour or finish, where this is
+     not possible an alternative colour will be provided.
+4.      Where the original gadget is replaced, the original gadget becomes our property and must be
+     returned to the Claims Administrator immediately. Please call the Claims Administrator on
+     0330 880 1753 and they will provide details for its return.
+5.      All repairs to gadgets are issued with a 3-month warranty (the gadget must be returned to the
+     Claims Administrator in the event of a claim under the Taurus warranty).
+6.      All replacement items are issued with a 12-month warranty (the item must be returned to the
+     Claims Administrator in the event of a claim under the Taurus warranty).
+7.      If your existing accessories are not compatible with the replacement item that we have provided,
+     we will cover the cost of replacing the accessories if you supply proof of purchase for these.
+
+
+                                                    41
+
+## Page 42
+
+8. Taurus warranty claims for gadget(s) damaged in transit will only be paid where they are reported
+   to the Claims Administrator on 0330 880 1753 within 48 hours of delivery and the packaging is
+   retained to allow an investigation to be carried out.
+
+Conditions and Limitations
+Limit of Liability
+The most we will pay for any claim is the single item limit shown in the 'Summary of cover limits'. This
+amount will not be more than the replacement cost of each gadget(s) being claimed for. The claim
+payment will not be more than:
+
+- the single item limits shown in the 'Summary of cover limits'; or
+- the original purchase price; or
+- the current market value of each gadget(s),
+whichever is the lowest amount.
+
+Fraud
+The contract between you and us is based on mutual trust. However, if anyone named on your policy
+schedule or anyone acting for you commits a fraudulent act, included but not limited to:
+- submitting fraudulent documents; or
+- making a fraudulent statement; or
+- exaggerate any part of the claim made under this policy.
+
+Then we:
+- will not pay any part of the claim; and
+- may be entitled to recover from you the amount of any claim already paid under your policy; and
+- may inform the Police and criminal proceedings may follow.
+
+Information Disclosure
+Throughout the claim process you are required to always be open and honest when providing answers.
+Failure to do so may result in your claim being declined.
+
+Where you have been asked for additional information in respect of your claim and it has been
+identified that there are inconsistencies in the circumstances of your claim, this may result in your
+claim being declined. This would include where you have failed to provide details of any other
+insurance policy that covers your gadget(s).
+
+Law
+The laws of the United Kingdom allow both parties to choose the law which will apply to this contract.
+However, the law which applies to this contract is the law which applies to the part of the United
+Kingdom where your home is, unless otherwise agreed by us in writing. If your home is in the Channel
+Islands or the Isle of Man, then the law of England and Wales will apply to this contract.
+
+
+                                                    42
+
+## Page 43
+
+Section 7: Personal money and
+event tickets
+Cover for your personal money or event tickets.
+
+Check your policy schedule to see what level of cover you chose. Policy limits are per insured person,
+per insured trip.
+
+Summary of cover limits:
+                                                          Adventure                       Adventure Plus
+Cover                                      Policy Limit               Excess*   Policy Limit         Excess*
+
+Personal money                             £200                       £150      £300                 £70
+
+Cash                                       £200                       £150      £200                 £70
+
+Event tickets                              £200                       £150      £350                 £70
+
+
+* Unless otherwise shown on your policy schedule.
+
+Some words have special meanings in this section. Wherever you see these words in bold,
+this is what they mean:
+Personal Money
+
+ This includes:                                             This doesn’t include:
+ Cash                                                       Avios / Air miles
+ Pre-paid currency cards                                    Crypto currencies
+ Travellers and other cheques                               Money used or held for business
+                                                            Lottery cards / tickets
+                                                            Debit or credit cards
+
+
+ We will pay:
+        Up to the policy limit shown in the table above if your personal money or event ticket is lost or
+        stolen on your trip.
+
+
+ We won’t pay:
+        Loss or theft of your personal money or event ticket that wasn’t:
+- being carried by you (such as in your pocket or handbag).
+- kept in your hand luggage when you’re travelling on public transport (under your control so
+            that you can keep an eye on it).
+- kept in a safe or deposit box. If these are not available, they must be kept secure in your
+            locked accommodation.
+        Personal money that has been taken away (confiscated) by officials like customs or police
+        officers.
+        Pre-paid currency or event cards or cheques where the issuer can give you a replacement,
+        refund your money or where you haven’t followed their instructions.
+        Any reduction in your money due to changes in exchange rates, depreciation or mistakes
+        caused by error or omission.
+        Personal money that’s been lost or stolen by fraud. This includes where you’ve shown your
+        passwords or PIN to someone else.
+        Any personal money that is later recovered.
+        For anything mentioned in ‘What this policy doesn’t cover’.
+
+
+                                                           43
+
+## Page 44
+
+Special conditions:
+If you suffer a loss or theft and want to claim, you must:
+    Take care of your personal money, doing your best to protect it against loss or theft.
+    For any loss or theft you must:
+- report it to the police within 24 hours of discovery or as soon as possible after that; and
+- get a written police report.
+    Let us have proof of ownership of any lost or stolen personal money. This could be things like
+    bank statements showing cash withdrawals, or receipts for foreign currency.
+    Let us have proof of the replacement cost of any lost or stolen event tickets.
+
+
+                                                44
+
+## Page 45
+
+Section 8: Passport and other documents
+If your passport or other travel documents are lost or stolen.
+
+Check your policy schedule to see what level of cover you chose.
+Policy limits are per insured person, per insured journey.
+
+Summary of cover limits:
+                                                           Adventure                       Adventure Plus
+Cover                                       Policy Limit               Excess*   Policy Limit         Excess*
+
+Passport and other documents               £200                        £150      £350                 £70
+
+
+* Unless otherwise shown on your policy schedule.
+
+We will cover loss or theft of your passports, driving licence, or travel documents that were:
+- being carried by you (such as in your pocket or handbag).
+- kept in your hand luggage when you’re travelling on public transport (under your control so that
+  you can keep an eye on it).
+- kept in a safe or deposit box in your secure private accommodation.
+
+
+ We will pay:
+        If your passport, driving licence or travel visas are lost or stolen, we’ll pay up to the limit shown
+        in the ‘Summary of cover limits’ table for:
+- the cost of a temporary passport and replacement visas whilst you’re abroad.
+- additional travel and accommodation expenses (room only) that you have to pay whilst you
+             arrange your temporary passport or replacement visas.
+- the cost of replacing your passport or driving licence when you get home. We’ll only pay for
+             the time remaining on your passport or driving licence. For example, you have 5 years left
+             on a 10-year passport, we’ll pay for half the cost of a new one.
+
+
+ We won’t pay:
+        For replacement of any passports or other important documents that have been taken away
+        (confiscated) by officials like customs or police officers.
+        Any loss or theft of your travel documents that can be replaced free of charge by the issuer.
+        For anything mentioned in ‘What this policy doesn’t cover’.
+
+
+ Special conditions:
+ If you suffer a loss or theft and want to claim, you must:
+     Take care of your travel documents, passport(s) and driving licence(s), doing your best to
+     protect them against loss or theft.
+     For any loss or theft you must:
+- report it to the police within 24 hours of discovery or as soon as possible after that; and
+- get a written police report.
+
+
+                                                            45
+
+## Page 46
+
+Section 9: Baggage delay on your
+outward journey
+Help to replace the essentials if your hold or cargo baggage is delayed by
+12 hours or more.
+
+Check your policy schedule to see what level of cover you chose. Policy limits are per insured person,
+per insured journey.
+
+Summary of cover limits:
+
+                                                           Adventure                           Adventure Plus
+Cover                                       Policy Limit                    Excess   Policy Limit                    Excess
+
+                                            Up to £30 after each 12 hours            Up to £50 after each 12 hours
+Baggage delay on your outward journey                                       None                                     None
+                                            of delay up to £200                      of delay up to £300
+
+
+ We will pay:
+        If there’s a delay in your baggage getting to your trip destination, we’ll pay up to the policy
+        limit towards the cost of you buying essential replacement items.
+
+ This is to cover the costs of buying essential items until your baggage arrives. Essential items could
+ be things like toiletries, a change of clothes or replacement phone chargers. Whatever you need to
+ replace until your baggage gets to you.
+
+    Your baggage must be delayed by 12 hours or more.
+
+
+ We won’t pay:
+        Any claim for delayed baggage on your return journey, back to the United Kingdom.
+        Any delays caused by customs or officials confiscating your baggage.
+        For anything mentioned in ‘What this policy doesn’t cover’.
+
+
+ What you need to do:
+   Report delays to your travel operator before you leave the baggage reclaim areas. You’ll need
+   to get written confirmation of the delay. If travelling by air, this will be called a Property
+   Irregularity Report (PIR).
+   You must send us any invoices or receipts for any essential items that you had to buy whilst your
+   baggage was delayed.
+   If your baggage arrives you must obtain written confirmation of the length of the delay.
+
+
+                                                            46
+
+## Page 47
+
+Section 10: Missed departure
+and missed connection
+If you arrive too late to board your pre-booked transport (including
+connecting transport), this cover could help to pay for extra costs you incur to get to your trip
+destination, or back home.
+
+Check your policy schedule to see what level of cover you chose. Policy limits are per insured person,
+per insured journey.
+
+Summary of cover limits:
+                                                          Adventure                       Adventure Plus
+Cover                                      Policy Limit               Excess*   Policy Limit         Excess*
+
+Missed departure                            £500                      £150      £1,000               £70
+
+Missed connection                           £500                      £150      £1,000               £70
+
+
+* Unless otherwise shown on your policy schedule.
+
+ We will pay:
+ If you arrive late because of:
+- strike or industrial action on your scheduled public transport impacting your travel to your
+     departure points.
+- adverse weather conditions (except catastrophe) impacting your travel to your departure points.
+- the private motor vehicle that you’re travelling in to your departure point:
+     – breaking down; or
+     – being involved in a road accident; or
+     – being delayed because of heavy traffic or road closures; or
+     – running out of petrol or electric charge because of heavy traffic.
+     Up to the policy limit, for additional travel and accommodation costs (room only),
+     if you arrive too late to board your pre-booked transport (this includes connecting transport).
+     This is so that you can:
+- reach your trip destination; or
+- catch up with your scheduled itinerary; or
+- return to your home (for missed departures and connections on your return journey).
+
+
+ We won’t pay:
+        Any claim where you haven’t left enough time to get to your departure point.
+        Any claim caused by a vehicle breakdown where the vehicle hasn’t been properly serviced,
+        maintained or have a valid MOT.
+        Any claim because of heavy traffic or road closures that weren’t severe enough to be reported:
+- on a recognised motoring association web site; or
+- on the highways agency website; or
+- on a news bulletin or in the media.
+        Any claim because of a failure to provide any service on your trip due to, error, failure, omission,
+        or financial failure of the travel provider.
+        Any claim as a result of a catastrophe.
+
+
+                                                           47
+
+## Page 48
+
+Any claim as a result of your missed departure or missed connection for reasons other than those
+   listed in this section.
+   Any claim where you’ve allowed less than 3 hours between connecting flights.
+   For anything mentioned in ‘What this policy doesn’t cover’.
+
+
+Special conditions:
+   You must have allowed enough time to reach your departure point so that you could check
+   in on time.
+   Any additional accommodation or travel must be a similar standard to your original booking
+   (for example, economy travel).
+   You must let us have evidence of:
+- the reason for the delay leading to you missing your departure.
+- receipts for any additional accommodation or travel costs.
+
+
+                                               48
+
+## Page 49
+
+Section 11: Travel delay
+and abandonment
+Sometimes journeys don’t go to plan. This section tells you how we can
+help if your departure is delayed, or if you need to abandon your journey.
+
+Travel Delay Benefit
+Check your policy schedule to see what level of cover you chose. Policy limits are per insured person,
+per insured journey.
+
+Summary of cover limits:
+                                                                       Adventure                      Adventure Plus
+Cover                                                   Policy Limit               Excess   Policy Limit                    Excess
+
+Travel delay benefit                                     £30 every 12 hours        None     £50 every 12 hours              None
+
+Maximum limit for travel delay benefit                   £150                      None     £300                            None
+
+
+ We will pay:
+ If you're delayed by 12 hours or more from your original scheduled departure time from your first
+ departure point, including any connecting flights, on your:
+- outward journey from the United Kingdom; or
+- return journey to the United Kingdom.
+ because of:
+- adverse weather conditions (not listed under catastrophe); or
+- strike or industrial action; or
+- mechanical breakdown of your scheduled transport.
+    The delayed departure benefit, up to the maximum policy limit so that you can grab some
+    refreshments or space in a travel lounge.
+
+
+ We won’t pay:
+        Any claim where you’ve been offered alternative transport which leaves within 12 hours of the
+        original scheduled departure time.
+        Any claim where you haven’t checked in at your departure point by the time shown in your
+        travel itinerary. You may be able to claim for this under ‘Missed departure and missed
+        connection’.
+        For anything mentioned in ‘What this policy doesn’t cover’.
+
+
+This benefit is there to help make any delays more comfortable and can be used at any point in your
+journey. Here are some examples to help:
+
+Examples of how this benefit can help you               We’ll pay you: Adventure            We’ll pay you: Adventure Plus
+
+Your direct flight from the United Kingdom to your
+                                                        £30                                 £50
+holiday destination has been delayed by 12 hours
+Your flight was delayed by 24 hours                     £60                                 £100
+
+You take 2 flights to get to your holiday destination.
+You had a 6-hour delay on your first flight and a 6-hour £30                                £50
+delay on your second
+
+
+                                                                        49
+
+## Page 50
+
+What you need to do:
+Just send us evidence of any delays that you’ve suffered, and we’ll arrange payment of your delayed
+departure benefit to you.
+
+
+If you need to abandon your trip
+Check your policy schedule to see what level of cover you chose. Policy limits are per insured person,
+per insured journey.
+
+If you live in Northern Ireland, this cover includes international departure points in the Republic of
+Ireland.
+
+Summary of cover limits:
+
+                                                         Adventure                       Adventure Plus
+Cover                                     Policy Limit               Excess*   Policy Limit         Excess*
+
+Abandonment after 12 hours delay         £2,000                      £150      £5,000               £70
+
+
+* Unless otherwise shown on your policy schedule.
+
+  We will pay:
+  If you choose to abandon your trip because of a delay of 12 hours or more at your first departure
+  point from the United Kingdom, on your outward journey because your scheduled transport is
+  delayed by:
+- adverse weather conditions (not listed under catastrophe); or
+- strike or industrial action; or
+- mechanical breakdown of your scheduled transport.
+      Up to the policy limits for unused and non-refundable:
+- pre-booked travel and accommodation costs.
+- pre-booked airport or port parking, car hire, airport, lounge passes or trip excursions.
+- travel permission costs including visas, ESTA (electronic system for travel authorisation),
+          EU entry or exit system (EES).
+
+
+  We won’t pay:
+        For any claim where the policy was purchased after you have left your home.
+        Any claim where you’ve been offered alternative transport which leaves within 12 hours of the
+        original scheduled departure time.
+        Any claim where you haven’t checked in at your departure point by the time shown in your
+        travel itinerary. You may be able to claim for this under ‘Missed departure and missed
+        connection’.
+        For any losses which can be recovered elsewhere, or you aren’t contractually liable for.
+        For anything mentioned in ‘What this policy doesn’t cover’.
+
+
+  Special conditions:
+     You must have already paid or be contracted to pay the costs that you’re claiming for.
+     This section only applies if you’ve travelled to your departure point and checked in. If you haven’t
+     travelled to your departure point, you’ll not be covered, even if you’ve checked-in online.
+     We’ll need confirmation from the carrier, accommodation or travel company, stating the delay
+     period and reason.
+
+
+                                                          50
+
+## Page 51
+
+Section 12: Personal liability
+If you’re legally responsible for causing injury or damage.
+
+Check your policy schedule to see what level of cover you chose. Policy limits are
+per insured event.
+
+Summary of cover limits:
+                                                       Adventure                       Adventure Plus
+Cover                                   Policy Limit               Excess*   Policy Limit         Excess*
+
+Personal liability                      £2,000,000                 £150      £2,000,000           £70
+
+
+* Unless otherwise shown on your policy schedule.
+
+    This section does not apply to insured journeys solely within the United Kingdom.
+
+
+ We will pay:
+ If you're found legally liable for causing:
+- death or bodily injury to another person.
+- material loss of or damage to another person’s property.
+     Material damages or compensation that you legally must pay.
+     Legal costs and expenses incurred in:
+- defending a legal action against you; or
+- in negotiating a settlement.
+     Your costs and expenses when you’re required by us to participate in the defence of such an
+     action.
+
+
+ We won’t pay:
+     Any claim from an insured journey solely within the United Kingdom.
+     Any liability because you have participated in hazardous activities and sports that are:
+- specifically excluded; or
+- not listed as covered unless otherwise agreed by us; or
+- listed as being covered but not for Personal Liability cover.
+     Any liability for non-material damage. This includes damage to reputation or intellectual
+     property rights.
+     Any claim where you cause:
+- death or bodily injury to; or
+- damage to property in the care of, or belonging to:
+        – you.
+        – a member of your family, or someone living with you.
+        – someone employed by you.
+        – a travelling companion.
+        – someone you’ve arranged to stay with.
+ This does not include any temporary holiday accommodation not owned by you.
+     Any claim for injury, loss or damage arising directly or indirectly from your ownership or use of:
+- horse-drawn, motorised, electrically or mechanically propelled or towed cars or vehicles.
+- aircraft.
+- watercraft (except row boats, punts or canoes).
+
+
+                                                        51
+
+## Page 52
+
+- animals (except domestic dogs or cats).
+- firearms, weapons or explosive devices.
+   Any claim directly or indirectly caused from:
+- any form of racing; or
+- your trade, profession or business; or
+- a contract, unless you’d be liable even if the contract didn’t exist; or
+- you leading a group taking part in an activity; or
+- you transmitting a disease to another person; or
+- your deliberate, unlawful, malicious or wilful act or omission; or
+- your fraudulent, dishonest or criminal act or that of any person authorised by you; or
+- something that’s subject to criminal proceedings against you.
+   Any claim covered elsewhere, such as under another insurance policy.
+   Any claim arising through court action brought in a country other than where the insurance event
+   took place. This does not apply if we’ve agreed otherwise.
+   Punitive or exemplary damages.
+   Any claim where:
+- you haven’t told us of something that might lead to a claim within a reasonable timeframe;
+       and
+- this failure affects our ability to limit our liability.
+   For anything mentioned in ‘What this policy doesn’t cover’.
+
+
+Special conditions:
+   If you know of any insurance event which may result in a claim, you must:
+- let us know without delay; and
+- send us all correspondence and legal documents, without responding to them.
+- not discuss liability with any third party.
+   You must not admit liability without our prior written agreement. This includes making an offer,
+   promise, payment or indemnity.
+   We’re entitled to take over the defence and settlement of any claim against you in your name.
+   We’ll have full discretion in the conduct of any proceedings and the settlement of any claim.
+   We may, at our own expense, take proceedings in your name. These proceedings will be taken
+   to recover compensation or indemnity from any third party.
+   If you take part in defence or negotiation proceedings, any transport and accommodation
+   costs must be agreed by us in advance.
+   Where more than one insured person is involved in the same insurance event, the maximum
+   we’ll pay in total is £2,000,000. If this limit is reached, this amount will be allocated in
+   proportion to each insured person.
+
+
+                                                52
+
+## Page 53
+
+Section 13: Legal costs and expenses
+Cover for legal costs and expenses you may become liable for on
+an insured journey.
+
+Check your policy schedule to see what level of cover you chose. Policy limits are per insured person,
+per insured journey.
+
+Summary of cover limits:
+
+                                                        Adventure                      Adventure Plus
+Cover                                    Policy Limit               Excess   Policy Limit         Excess
+
+Legal costs and expenses                 £25,000                    None     £25,000              None
+
+
+    Important - cover under this section is underwritten and administered by ARAG Legal Expenses
+    Insurance Company Limited (‘ARAG’). ARAG is the underwriter and provides the legal protection
+    insurance and legal advice helpline.
+
+ARAG Legal Expenses Insurance Company Limited
+Registered Address: ARAG Legal Expenses Insurance Company Limited, ARAG Parc, Greenway Court,
+Bedwas, Caerphilly, CF83 8DW. Registered in England and Wales. Company Number 103274. Website:
+www.arag.co.uk
+
+ARAG Legal Expenses Insurance Company Limited is authorised by the Prudential Regulation Authority
+and regulated by the Financial Conduct Authority (FRN202106) and the Prudential Regulation Authority.
+
+This section, policy and the policy schedule shall be read together as one document and describe the
+contract between the insured person and ARAG. ARAG agrees to provide the insurance described in
+this section, in return for payment of the premium and subject to the terms, conditions, exclusions and
+limitations set out in this section, provided that:
+1. reasonable prospects exist for the duration of the claim
+2. the date of occurrence of the insured incident is during the policy period
+3. any legal proceedings will be dealt with by a court, or other body which ARAG agree to, within the
+    countries covered and
+4. the insured incident happens within the countries covered.
+
+ What ARAG will pay
+        ARAG will pay an appointed representative, on the insured persons behalf,
+        Costs and expenses incurred following an insured incident, provided that:
+        a. the most ARAG will pay for all claims resulting from one or more events arising at the same
+           time or from the same originating cause is £25,000
+        b. the most ARAG will pay in costs and expenses is no more than the amount ARAG would
+           have paid to a preferred law firm. The amount ARAG will pay a law firm (where acting as
+           an appointed representative) is currently £100 per hour. This amount may vary from time
+           to time.
+        c. in respect of an appeal or the defence of an appeal, the insured person must tell ARAG
+           within the time limits allowed that the insured person wants to appeal. Before ARAG pay the
+           costs and expenses for appeals, ARAG must agree that reasonable prospects exist
+
+
+                                                         53
+
+## Page 54
+
+d. for an enforcement of judgment to recover money and interest due to the insured person
+        after a successful claim under this section, ARAG must agree that reasonable prospects
+        exist, and
+     e. where an award of damages is the only legal remedy to a dispute and the cost of pursuing
+        legal action is likely to be more than any award of damages, the most ARAG will pay in costs
+        and expenses is the value of the likely award.
+
+
+ What ARAG will not pay
+     In the event of a claim, if the insured person decides not to use the services of a preferred
+     law firm, the insured person will be responsible for any costs that fall outside the ARAG
+     Standard Terms of Appointment, and these will not be paid by ARAG.
+
+
+Definitions applicable to this section
+The following words have these meanings wherever they appear in this section in bold:
+
+Appointed Representative
+The preferred law firm, law firm or other suitably qualified person ARAG will appoint to act on behalf
+of the insured person.
+
+Costs and Expenses
+a.  All reasonable, proportionate and necessary costs chargeable by the appointed representative and
+     agreed by ARAG in accordance with the ARAG Standard Terms of Appointment.
+b.  The costs incurred by opponents in civil cases if the insured person has been ordered to pay them,
+     or the insured person pays them with ARAG’s agreement.
+
+Countries Covered
+Worldwide.
+
+ARAG
+ARAG Legal Expenses Insurance Company Limited.
+
+ARAG Standard Terms of Appointment
+The terms and conditions (including the amount ARAG will pay to an appointed representative) that
+apply to the relevant type of claim, which could include a conditional fee agreement (no win, no fee).
+Where a law firm is acting as an appointed representative the amount is currently £100 per hour. This
+amount may vary from time to time.
+
+Date of Occurrence
+The date of the event that leads to a claim. If there is more than one event arising at different times
+from the same originating cause, the date of occurrence is the date of the first of these events. (This is
+the date the event happened, which may be before the date the insured person first became aware of
+it.)
+
+Insured Person
+The person stated on the policy schedule as being insured.
+
+Preferred Law Firm
+A law firm or barristers’ chambers ARAG choose to provide legal services. These legal specialists are
+chosen as they have the proven expertise to deal with the insured person’s claim and must comply
+with ARAG’s agreed service standard levels, which ARAG audit regularly. They are appointed according
+to the ARAG Standard Terms of Appointment.`
+
+
+                                                    54
+
+## Page 55
+
+Reasonable Prospects
+The prospects that the insured person will recover losses or damages (or obtain any other legal remedy
+that ARAG have agreed to, including an enforcement of judgment), make a successful defence or make
+a successful appeal or defence of an appeal, must be at least 51%. ARAG, or a preferred law firm on
+ARAG’s behalf, will assess whether there are reasonable prospects.
+
+   What is covered
+   1. Costs and expenses to pursue an insured person’s legal rights following a specific or sudden
+      accident that causes death or bodily injury to the insured person.
+
+
+   What is not covered
+   ARAG will not pay a claim relating to the following:
+   1. Any claim relating to any illness or bodily injury that happens gradually.
+   2. Any psychological injury or mental illness unless the condition follows a specific or sudden
+      accident that has caused physical bodily injury to an insured person.
+   3. Defending an insured person’s legal rights, but ARAG will cover defending a counter-claim.
+   4. Any claim relating to clinical negligence.
+
+
+Exclusions applying to this section - Also see “What this policy doesn’t cover”
+
+1. A claim where an insured person has failed to notify ARAG of the insured incident within a
+    reasonable time of it happening and where this failure adversely affects the reasonable prospects
+    of a claim or ARAG consider their position has been prejudiced.
+2. An incident or matter arising before the start of this cover.
+3. Costs and expenses incurred before ARAG’s expressed acceptance.
+4. Fines, penalties, compensation or damages that a court or other authority orders an insured person
+    to pay.
+5. Any legal action an insured person takes that ARAG or the appointed representative have
+    not agreed to, or where an insured person does anything that hinders ARAG or the appointed
+    representative.
+6. A dispute with ARAG not otherwise dealt with under section condition 7.
+7. Costs and expenses arising from or relating to judicial review, coroner’s inquest or fatal accident
+    inquiry.
+8. Any costs and expenses that are incurred where the appointed representative handles the claim
+    under a contingency fee arrangement (other than a conditional fee agreement (no win, no fee)
+    which could apply under the ARAG Standard Terms of Appointment).
+9. Any claim against ERGO Travel Insurance Services Ltd, Great Lakes Insurance UK Limited or their
+    respective agents.
+10. Any claim where the insured person is not represented by a law firm or barrister.
+
+Conditions applying to this section
+1.
+a. On receiving a claim, if legal representation is necessary, ARAG will appoint a preferred law firm as
+   the insured person’s appointed representative to deal with the insured person’s claim. They will
+   try to settle an insured person’s claim by negotiation without having to go to court.
+b. If the appointed preferred law firm cannot negotiate settlement of the insured person’s claim and
+   it is necessary to go to court and legal proceedings are issued or there is a conflict of interest, then
+   the insured person may choose a law firm to act as the appointed representative.
+c. If the insured person chooses a law firm as their appointed representative which is not a
+
+
+                                                     55
+
+## Page 56
+
+preferred law firm, ARAG will give the insured person’s choice of law firm the opportunity to act
+     on the same terms as a preferred law firm. However if they refuse to act on this basis, the most
+     ARAG will pay is the amount ARAG would have paid if they had agreed to the ARAG Standard
+     Terms of Appointment. The amount ARAG will pay a law firm (where acting as the appointed
+     representative) is currently £100 per hour. This amount may vary from time to time.
+d. The appointed representative must co-operate with ARAG at all times and must keep ARAG up to
+     date with the progress of the claim.
+2.
+a.      An insured person must co-operate fully with ARAG and the appointed representative.
+b. An insured person must give the appointed representative any instructions that ARAG ask an
+     insured person to give.
+3.
+a.      An insured person must tell ARAG if anyone offers to settle a claim. An insured person must not
+     negotiate or agree to a settlement without ARAG’s written consent.
+b. If an insured person does not accept a reasonable offer to settle a claim, ARAG may refuse to pay
+     further costs and expenses.
+c.      ARAG may decide to pay an insured person the reasonable value of the insured person’s claim,
+     instead of starting or continuing legal action. In these circumstances an insured person must allow
+     ARAG to take over and pursue or settle any claim in an insured person’s name. An insured person
+     must also allow ARAG to pursue at their own expense and for their own benefit, any claim for
+     compensation against any other person and an insured person must give ARAG all the information
+     and help ARAG need to do so.
+4.
+a.      An insured person must instruct the appointed representative to have costs and expenses taxed,
+     assessed or audited if ARAG ask for this.
+b. An insured person must take every step to recover costs and expenses and court attendance
+     expenses that ARAG have to pay and must pay ARAG any amounts that are recovered.
+5.      If the appointed representative refuses to continue acting for an insured person with good
+     reason, or if an insured person dismisses the appointed representative without good reason,
+     the cover ARAG provide will end immediately, unless ARAG agree to appoint another appointed
+     representative.
+6.      If an insured person settles or withdraws a claim without ARAG’s agreement, or does not give
+     suitable instructions to the appointed representative, ARAG can withdraw cover and will be
+     entitled to reclaim from an insured person any costs and expenses ARAG has paid.
+7.      If there is a disagreement about the handling of a claim and it is not resolved through ARAG’s
+     internal complaints procedure the Financial Ombudsman Service may be able to help. This is a
+     free complaint resolution service for eligible complaints. (Details available from www.financial-
+     ombudsman.org.uk). Alternatively, there is a separate arbitration process available that can be used
+     to settle any dispute with ARAG. The arbitrator will be a jointly agreed barrister, solicitor or other
+     suitably qualified person. If there is a disagreement over the choice of arbitrator, ARAG will ask the
+     Chartered Institute of Arbitrators to decide. The arbitrator will decide who will pay the costs of the
+     arbitration. For example, costs may be split between the parties or one party may pay all the costs.
+8.      If there is a disagreement between an insured person and us on the merits of the claim or
+     proceedings, or on a legal principle, ARAG may suggest the insured person obtains at their own
+     expense an opinion on the matter from an independent and appropriate expert. The expert must be
+     approved in advance by ARAG and the cost expressly agreed in writing between the insured person
+     and ARAG. Subject to this ARAG will pay the cost of getting the opinion if the expert’s opinion
+     indicates that it is more likely than not that the insured person will recover damages (or obtain any
+     other legal remedy that ARAG have agreed to) or make a successful defence. This does not affect the
+     insured person’s rights under Section Condition 7.
+
+
+                                                    56
+
+## Page 57
+
+9.  An insured person must:
+a.  keep to the terms and conditions of this section
+b.  take reasonable steps to avoid and prevent claims
+c.  take reasonable steps to avoid incurring unnecessary costs
+d.  send everything ARAG asks for, in writing, and
+e.  report to ARAG full and factual details of any claim as soon as possible and give ARAG any
+    information ARAG need.
+10. ARAG will, at ARAG’s discretion, void this section (make it invalid) from the date of claim, or alleged
+    claim, and/or ARAG will not pay the claim if:
+a. a claim an insured person has made to obtain benefit under this policy is fraudulent or intentionally
+    exaggerated, or
+b. a false declaration or statement is made in support of a claim.
+11. Apart from ARAG, an insured person is the only person who may enforce all or any part of this
+    policy and the rights and interests arising from or connected with it. This means that the Contracts
+    (Rights of Third Parties) Act 1999 does not apply to this section in relation to any third-party rights or
+    interest.
+12. If any claim covered under this section is also covered by another policy, or would have been covered
+    if this section did not exist, ARAG will only pay their share of the claim even if the other insurer
+    refuses the claim.
+13. This section is governed by the law that applies in the part of the United Kingdom, Channel Islands
+    or Isle of Man where the insured person normally lives. Otherwise, the law of England and Wales
+    applies. All Acts of Parliament mentioned in this section include equivalent laws in Scotland,
+    Northern Ireland, the Isle of Man and the Channel Islands as appropriate.
+
+Eurolaw Legal Advice
+ARAG will give an insured person confidential legal advice over the phone on any personal legal
+problem under the laws of the United Kingdom of Great Britain and Northern Ireland, any European
+Union Country, Isle of Man, the Channel Islands, Switzerland and Norway.
+
+An insured person can contact ARAG’s UK-based call centre 24 hours a day, seven days a week.
+However, ARAG may need to arrange to call the insured person back depending on the insured
+person’s enquiry. Advice about the law in England and Wales is available 24 hours a day, seven days
+a week. Legal advice for the other countries is available 9am-5pm, Monday to Friday, excluding public
+and bank holidays. If an insured person calls outside these times, a message will be taken and a return
+call arranged within the operating hours.
+
+To help check and improve service standards, ARAG may record all calls.
+
+To contact the above service, phone ARAG on +44 (0) 117 934 0548. When phoning, please quote the
+policy number.
+
+ARAG will not accept responsibility if the Helpline Service is unavailable for reasons ARAG cannot
+control.
+
+Privacy
+When you purchase and use a ARAG product ARAG will process personal information about you and
+anyone else whose details are provided to ARAG to provide you with a service or a claim.
+
+ARAG process your personal information in accordance with ARAG’s Privacy Notice. You can find
+ARAG’s Privacy Notice online at www.arag.co.uk/legal/privacy-statement. Alternatively you can make
+a request for a printed copy to be sent to you by contacting dataprotection@arag.co.uk
+
+
+                                                     57
+
+## Page 58
+
+Section 14: Hijack
+This part of the policy sets out the cover provided as a result of your transport
+being hijacked.
+
+Check your policy schedule to see what level of cover you chose. Policy limits are
+per insured person, per insured journey.
+
+Summary of cover limits:
+
+                                                           Adventure                         Adventure Plus
+Cover                                       Policy Limit                  Excess   Policy Limit              Excess
+
+                                                                                   £150 per 24 hours up to
+Hijack                                      £75 per 24 hours up to £750   None                               None
+                                                                                   £1,500
+
+
+Some words have special meanings in this section. Wherever you see these words in bold,
+this is what they mean:
+
+Hijack
+The unlawful seizure or wrongful exercise of control of the aircraft or sea vessel in which you’re
+travelling.
+
+The maximum amount we’ll pay is shown in the ‘Summary of cover limits’ table.
+
+
+ We will pay:
+         A benefit for each full 24 hours that you are detained.
+
+
+ We won’t pay:
+         For hijack in an area which is subject to war and civil unrest.
+         For anything mentioned in ‘What this policy doesn’t cover’.
+
+
+ Special conditions:
+    You must provide us with a written description of the hijack from an appropriate authority.
+
+
+                                                            58
+
+## Page 59
+
+What this policy doesn’t cover
+Like most insurance policies, there are things we don’t cover. In addition to the
+exclusions under ‘We won’t pay’ and ‘Special conditions’ for each cover section,
+the following exclusions apply to all sections of the policy.
+
+ We won’t pay:
+     The excess amount shown in the ‘Summary of cover limits’ table. If you’ve paid extra for the
+     excess waiver, no excess would apply. Your policy schedule will show if you have this cover.
+     For any losses that aren’t directly linked with the insured event causing the claim. For example,
+     loss of earnings if you’re unable to work or the cost of replacing locks if you’ve lost your keys.
+     For any losses which are recoverable elsewhere. Where another insurance policy covers the
+     same risk, we’ll only pay our share of a valid claim.
+
+
+ We won’t pay for any loss, damage, cost or expense caused directly or indirectly by:
+     Active Participation
+- An insured person taking active participation, whether combatant or non-combatant,
+         in supplying, transporting, or otherwise handling facilities, equipment, devices, vehicles,
+         weapons or other materials intended for use in war and civil unrest or terrorism; or
+- An insured person voluntary entering an area known at the time to be subject to war and
+         civil unrest, terrorism, or against the advice of the Foreign, Commonwealth & Development
+         Office (FCDO). See https://www.gov.uk/foreign-travel-advice.
+     Air passenger duty
+     Any loss in respect of air passenger duty (this can be reclaimed by you through your travel
+     agent or airline).
+     Aviation
+     Flying or aerial activity of any kind except when flying as a fare-paying passenger in a
+     licenced aircraft, unless otherwise shown as covered in ‘Activities we do and don’t cover’.
+     Business travel
+     Business trips.
+     Civil authorities
+     The confiscation or detention by customs or other authority.
+     Climbing and jumping
+     Climbing, jumping or moving (unless your life is in danger or you’re trying to save a human life):
+- on top of or from a vehicle, building or balcony.
+- from any external part of a building to another, regardless of height.
+         This doesn’t include fire escapes or external stairs.
+     Cruises
+     Any trip on a sea going cruise ship.
+     Cyber-attack
+     A cyber-attack. This includes the delay or cancellation of flights due to the failure of critical
+     systems. Cyber-attack means the use of disruptive activities such as hacking, worms,
+     viruses, trojan horses, blended threats, ransomware and other malware, or threat thereof, against
+     computers and/or networks, with the intention to cause real world harm or severe disruption of
+     systems or infrastructure.
+     Decompression
+     Any medical issues because of flying less than 24 hours after a SCUBA dive.
+     Depreciation
+     Depreciation, wear and tear or currency exchange losses.
+
+
+                                                   59
+
+## Page 60
+
+Disinclination
+Your unwillingness or refusal to travel.
+Epidemic/Pandemic
+Any epidemic or pandemic declared by the World Health Organisation.
+Hazardous activities
+Hazardous activities and sports that are shown as not covered in the ‘Activities we do and
+don’t cover’ table. Activities and sports not shown in the table won’t be covered unless
+agreed by us.
+Foreseeable circumstances
+Any event or claim that you knew about, or thought might happen at the time you:
+- booked an insured journey; or
+- bought your policy, whichever is the later date.
+Manual work
+Manual work unless agreed by us.
+Management fees
+Any claim for management fees, maintenance costs or exchange fees relating to:
+- timeshares; or
+- holiday property bonds; or
+- any similar arrangements.
+Failure to take medical precautions, advice and treatment
+Your failure to:
+- get any recommended vaccinations, inoculations or preventative medications, at the
+    correct time and before your trip; or
+- follow medical advice, accept treatment or take prescribed medication.
+Failure to wear a motorcycle helmet
+You not wearing an appropriate motorcycle helmet when on a motorcycle, moped,
+motor-scooter or similar.
+Negligence, error or omission
+The negligence, error or omission of:
+- an insured person, colleague or relative; or
+- any provider of transport or accommodation; or
+- any agent or online booking service through which travel arrangements were made.
+Nuclear, biological and chemical hazards
+- ionising radiation or contamination by radioactivity from any nuclear fuel or any nuclear
+    waste from the combustion of nuclear fuel, or the radioactive toxic, explosive or other
+    hazardous properties of any nuclear machinery or parts; or
+- the use of nuclear, biological or chemical weapons, or contamination, poisoning, prevention
+    and/or limitation of the use of objects because of nuclear, chemical, biological and/or
+    radioactive substances.
+Any pre-existing medical conditions(s).
+This is unless you’ve told us, paid any additional premium and it’s shown on your policy
+schedule. If you don’t tell us about all of your pre-existing medical conditions, we may not
+pay all or part of your claim. Please refer to ‘What we mean by pre-existing medical conditions’
+to see if you need to tell us.
+Promotional vouchers or rewards
+Any claim for promotional vouchers or reward points. This includes Air Miles or Avios points.
+Safety equipment and instructions
+You taking part in hazardous activities and sports where you don’t:
+- correctly wear or use any safety equipment customarily worn. This includes using a helmet,
+    harness, safety line or lifejacket; or
+- follow safety instructions and guidance given by the activity organisers or instructors.
+
+
+                                            60
+
+## Page 61
+
+Sanctions
+Any sanction, prohibition or restriction under United Nations resolutions or the trade or
+economic sanctions, laws or regulations of the EU, United Kingdom, USA or other country
+of policy issue.
+Search and rescue
+Any search and rescue. However, we’ll cover medical evacuations when medically necessary
+and when agreed in advance by our assistance company.
+Failure to wear a seatbelt
+You not wearing a seatbelt when travelling in a motor vehicle when one is available.
+Self-injury
+- your self-inflicted bodily injury or illness, suicide or attempted suicide; or
+- your exposure to unnecessary peril, except in an attempt to save human life; or
+- any form of alcohol abuse including withdrawal, or you drinking too much alcohol where
+    it’s reasonably foreseeable that such consumption could result in a serious impairment of
+    functions and/or judgment resulting in a claim; or
+- your use of any drugs, including solvents and so-called legal highs. This doesn’t include
+    drugs taken as a part of treatment prescribed and directed by a medical practitioner.
+    But drugs taken for the treatment of drug or alcohol addiction are also not covered.
+Swimming pool
+Unauthorised use of a swimming pool outside the specified opening times.
+Terrorism / Terrorist Act
+This exclusion won’t apply to the following sections of cover:
+- Emergency medical and repatriation expenses; and
+- Personal accident; and
+- Hijack
+Travelling to get medical treatment abroad
+Any trip where an insured person is travelling to get medical treatment abroad.
+Unlawful acts
+Any unlawful act committed by an insured person, or operation of law or order of courts,
+or civil or criminal proceedings against anyone on whom your insured journey depends.
+Volcanic ash
+The delay or cancellation of flights due to atmospheric volcanic ash:
+- on the order or recommendation of any civil authority; or
+- at the initiative of the airline.
+War and civil unrest
+This is unless your presence in such an area is due to:
+- the unscheduled transit or stopover of the aircraft or sea vessel in which you were
+    travelling; or
+- your involuntary diversion, transit or stopover as a result of hijack, kidnap or other
+    occurrence beyond your control; or
+- the sudden, unexpected occurrence of war and civil unrest in an area previously in
+    a state of peace at the time you entered the area.
+In such cases, you’ll be covered for a maximum period of 72 hours from your involuntary arrival
+in such an area. If you were already present in an area previously in a state of peace, you’ll be
+covered from the time when war and civil unrest first occurs.
+This is provided that you make all reasonable efforts to leave the affected area at the first
+opportunity.
+Winter Sports
+Your participation in winter sports.
+
+
+                                              61
+
+## Page 62
+
+Other important information
+In this section you can find the following information, if you have any questions, please give us a call.
+- Cancelling your policy
+- Making a complaint
+- Who are your insurers
+- Protecting your money and the Financial Service Compensation Scheme (FSCS)
+- Data Protection
+
+Cancelling your policy
+You can cancel your policy within 14 days of receiving your policy documents. If you haven’t started
+your trip or made a claim, we’ll give you a full refund.
+
+If you cancel your policy after 14 days, no premium will be refunded. However, if you’re cancelling
+because of exceptional circumstances such as a bereavement, or a change in your health which means
+that we can’t continue cover, we may be able to refund some of your premium.
+
+ Here are our contact details if you need to speak to us
+
+        Email: insurance.queries@holidayextras.com                Tel: 0333 188 0411
+
+
+        Insurance Customer Support, Holiday Extras, The Wave, Newingreen, Hythe, Kent, CT21 4FJ
+
+
+If we need to cancel your policy, we’ll give you 14 days’ notice in writing. If this happens, we’ll refund
+the premium you’ve paid for the time left on your policy.
+Once your policy has been cancelled, your cover will end, and you won’t be able to make a claim.
+
+Making a complaint
+We aim to provide you with the best service and support. However, we know that we do sometimes
+get things wrong. If you need to make a complaint, please get in touch and we’ll do everything we can
+to help.
+
+ For complaints about Legal costs and expenses
+
+        Email: customer-relations@arag.co.uk                      Tel: 0344 893 9013
+
+        Write to: Customer Relations Department, ARAG Legal Expenses Insurance Company Ltd, Unit
+        4a, Greenway Court, Bedwas, Caerphilly, CF83 8DW
+        Web: ARAG’s online complaint form at www.arag.co.uk/complaints
+        Further details of ARAG’s internal complaint-handling procedures are available on request.
+
+
+ For complaints about Gadget cover claims
+
+        Email: gadget.complaints@taurus.gi                        Tel: 0330 880 1753
+
+        Write to: Customer Relations Officer,Taurus Insurance Services Limited, Suite 2209-2217
+        Eurotowers, Europort Road, Gibraltar
+
+
+                                                     62
+
+## Page 63
+
+For complaints about claims under all other sections of the policy
+
+          Email: complaints@ergo-travel.co.uk               Tel: 01403 788 737
+
+          Write to: The Complaints Department, ERGO Travel Insurance Services Limited, Afon House,
+          Worthing Road, Horsham, West Sussex, RH12 1TL
+
+
+    For complaints about the sale and administration of your policy
+
+          Email: insurancecustomerteam@holidayextras.com                  Tel: 0333 188 0411
+
+          Write to: Customer Support, Holiday Extras, The Wave, Newingreen, Hythe, Kent, CT21 4FJ
+
+
+Please include your policy number. If your complaint is about a claim, include your claim number.
+We’ll do everything we can to answer your complaint quickly.
+
+- We’ll write within 5 days to confirm that we’ve got your complaint.
+- If you don’t agree with our final response, or if eight weeks have passed and we have not provided
+      our final response, you can contact the Financial Ombudsman Service (FOS).
+
+The Financial Ombudsman Service (FOS)
+The FOS is a free service that looks at and settles complaints between customers and financial service
+companies. Contacting the FOS does not affect your rights to take legal action.
+
+You can find more details about the FOS on their website: www.financial-ombudsman.org.uk
+
+
+          Email: complaint.info@financial-ombudsman.org.uk               Tel: 0800 023 4567
+
+          Write to: The Financial Ombudsman Service, Exchange Tower, London, E14 9SR
+
+
+Giving us the facts
+
+Keeping us updated
+
+Your declaration and changes
+You must answer all of our questions truthfully and accurately. You must tell us as soon as possible if
+there are any changes to your details or your health.
+
+Please see ‘Pre-existing medical conditions and changes to your health’. It’s important that you give
+us full and accurate information about pre-existing medical conditions. This applies to you, anyone
+travelling with you and anyone else your trip depends on. This is important as the policy contains
+specific conditions and exclusions. If you’re not sure if something is important, please tell us anyway.
+Failure to do so may invalidate your insurance.
+
+Changes in health and other circumstances
+You must tell us as soon as possible if:
+- your address or email address has changed; or
+
+
+                                                    63
+
+## Page 64
+
+- you or any person named on your policy schedule are no longer a resident in the United Kingdom;
+    or
+- you need to add additional cover to your policy; or
+- you need to change the geographical limits covered by your policy; or
+- you wish to add another traveller to your policy; or
+- there are any changes in your health or the health of anyone your trip may depend on.
+
+You must let us know if you need to make any changes to your policy. If you don’t tell us about any
+changes, you may not be able to claim.
+
+When you tell us about any changes, we’ll reassess your cover and premium. If you don’t tell us about
+a change in your circumstances:
+- the wrong terms may be quoted.
+- a claim might not be paid, or the payment could be reduced.
+
+In some cases, your policy might be invalid.
+
+Fraud
+Your policy could become invalid if you or someone acting for you:
+- knowingly provide information to us that isn’t true.
+- mislead us in any way to get insurance from us, obtain more favourable terms or a reduced
+   premium.
+
+To avoid committing fraud, don’t:
+- knowingly provide information to us that isn’t true.
+- mislead us in any way to get insurance from us, obtain more favourable terms or a reduced
+    premium.
+- make a claim under the policy knowing it to be false or fraudulently exaggerated in any way.
+- submit a document in support of a policy or claim knowing the document to be forged or false in
+    any way.
+- make a claim for loss or damage deliberately caused by you, or on your behalf without telling us.
+- engage in any other behaviour to gain monetary benefit that you wouldn’t normally receive.
+
+If you’re found to have committed fraud, we:
+- won’t pay any part of the claim.
+- will cancel your policy from the date the fraud occurred.
+- won’t return any premium paid.
+- will ask you to pay us back any claims we have paid from the date the fraud occurred.
+- may take legal action.
+- may pass your details to relevant agencies to prevent fraud and money laundering.
+
+Who are your insurers
+
+Legal costs and expenses section
+ARAG Legal Expenses Insurance Company Ltd, registered address Unit 4a Greenway Court, Badwas,
+Caerphilly, CF83 8DW. Registered in England and Wales. company number 103274, Website: www.arag.
+co.uk
+
+ARAG Legal Expenses Company Ltd is authorised by the Prudential Regulation Authority (FRN202106)
+and regulated by the Financial Conduct Authority and the Prudential Regulation Authority.
+
+
+                                                  64
+
+## Page 65
+
+All other sections of cover
+All other sections of cover are insured by Great Lakes Insurance UK Limited. Great Lakes Insurance UK
+Limited is a company incorporated in England and Wales with company number 13436330. Registered
+office address is 1 Fen Court, London, United Kingdom, EC3M 5BN.
+
+Great Lakes Insurance UK Limited is authorised by the Prudential Regulation Authority and regulated by
+the Financial Conduct Authority and the Prudential Regulation Authority. Firm reference number 955859.
+
+This policy is underwritten by ERGO Travel Insurance Services Ltd (ETI), registered in England and Wales,
+company number 11091555. Authorised and regulated by the Financial Conduct Authority, registered
+number 805870. Registered office is 1 Fen Court, London, EC3M 5BN.
+
+Gadget section
+Arranged by and claims administered by Taurus Insurance Services Limited (Taurus), registered office:
+Taurus Insurance Services Limited, Suite 2209-2217, Eurotowers, Europort Road, Gibraltar.
+
+Taurus is an insurance intermediary licenced and authorised in Gibraltar by the Financial Services
+Commission under Permission Number 5566 and authorised by the Financial Conduct Authority in the
+United Kingdom under registration number 444830.
+
+You can check this on the Financial Services Register by visiting https://register.fca.org.uk
+
+Protecting your money and the Financial Service Compensation Scheme (FSCS)
+If you live in the United Kingdom, you’re protected by the FSCS. This scheme compensates you if your
+insurance provider goes out of business and can’t pay claims under its policies.
+
+You can find out more about the FSCS and how to get in touch with them at www.fscs.org.uk.
+
+The law that applies to your contract
+Unless otherwise agreed by us, the law applied to this contract is the law which applies to the part of
+the United Kingdom where your home is. The only exception is if your home is in the Channel Islands
+or the Isle of Man, then the law of England and Wales will automatically apply to this contract.
+
+Transfer of rights
+You can’t transfer your rights under this policy. No one else has any right to enforce any term of this
+policy. This is due to the Contracts (Rights of Third Parties) Act 1999. This doesn’t affect any right or
+remedy of a third party that exists or is available from that Act.
+
+How we use your personal information
+ERGO Travel Insurance Services Ltd (ERGO TIS) and its partners are committed to protecting your personal
+data. This Privacy Notice outlines how we collect, use, disclose, and safeguard your information. Please
+read this notice carefully to understand how your personal data is managed.
+
+1. Data Controllers and Processors
+ERGO TIS acts as the Data Controller for the personal data you provide, either directly or via our Data
+Processors. Our processing activities include policy issuance, claims management, customer service,
+and business operations related to insurance services.
+
+For more information, visit: www.ergotravelinsurance.co.uk/privacy-statement/
+
+
+                                                     65
+
+## Page 66
+
+Great Lakes Insurance UK Limited (GLUK) also acts as a Data Controller for certain personal data we
+collect. GLUK is responsible for safeguarding this data in accordance with its privacy practices. For more
+details on how GLUK uses your personal data, please visit:
+
+https://www.munichre.com/Great-Lakes-Insurance-UK-Information-Notice
+
+Holiday Extras Cover Limited (Holiday Extras) processes personal data on behalf of ERGO TIS for specific
+purposes, such as Holiday Extras may also act as an independent Data Controller for other purposes as
+outlined in their privacy notice. For more details, please review the Holiday Extras Privacy Policy here:
+https://www.holidayextras.com/privacy.html
+
+2. What types of personal data do we collect?
+We collect and process personal data, which may include but is not limited to:
+- Personal identification information (e.g. full name, date of birth, contact details).
+- Health Data (e.g. declared medical conditions or as necessary for certain claims).
+- Payment Information (e.g. banking details for processing claims and policy payments).
+
+We may collect this data directly from you or via Third Party Administrators, Assistance Companies, or
+other authorised sources.
+
+For more information about the personal data collected by ERGO TIS, please visit:
+www.ergotravelinsurance.co.uk/privacy-statement/#what-types-of-personal-data-do-we-collect
+
+3. What are our purposes and legal basis for processing your personal data?
+We process your personal data for various purposes, including:
+- Issuing policies.
+- Underwriting and administering your insurance contract.
+- Claims and complaints management.
+- Customer service.
+- Business operations related to insurance services.
+- Compliance with legal obligations.
+
+For further details on the purposes and legal basis for processing, please visit:
+www.ergotravelinsurance.co.uk/privacy-statement/#what-are-our-purposes-and-legal-basis-for-
+processing-your-personal-data
+
+4. Who is your personal data shared with?
+Your personal data may be shared with:
+- Great Lakes Insurance UK Limited.
+- External partners.
+- Claims handlers.
+- Assistance providers.
+
+The specific entities your data is shared with depend on the type of insurance purchased and the services
+you request.
+
+For detailed information, please contact the ERGO TIS Data Protection Officer or the Holiday Extras Data
+Protection Officer or visit:
+www.ergotravelinsurance.co.uk/privacy-statement/#who-is-your-personal-data-shared-with
+
+
+                                                    66
+
+## Page 67
+
+5. How long do we keep your personal data?
+We retain your personal data for only as long as necessary for the purposes outlined in this notice or as
+required by law. Data retention periods vary depending on the type of data processed and relevant legal
+or regulatory obligations.
+For more details, visit:
+www.ergotravelinsurance.co.uk/privacy-statement/#how-long-do-we-keep-your-personal-data
+
+6. Artificial Intelligence and Automated Decision-Making
+We may use Artificial Intelligence and automated processing technologies in providing our services.
+Where AI or automated decision making is used, we will ensure appropriate information is provided to
+you in accordance with applicable data protection laws.
+
+For more information please see our Privacy Policy:
+www.ergotravelinsurance.co.uk/privacy-statement/#artificial-intelligence-and-automated-decision-
+making
+
+7. What are your rights?
+Under applicable data protection laws, you have the following rights regarding your personal data:
+- Access: You can request access to your personal data.
+- Rectification: You can request the correction of inaccurate data.
+- Erasure: You can request deletion of data where legally permissible.
+- Restriction: You can request restriction of processing in certain circumstances.
+- Objection: You have the right to object to data processing for specific purposes.
+- Automated Decision-Making: Where decisions are made using automated processing, you have
+    rights including the ability to request human intervention and challenge the decision.
+
+To exercise your rights, please contact the ERGO TIS Data Protection Officer or the Holiday Extras Data
+Protection Officer.
+
+8. Contact Details
+For any questions regarding your data or this Privacy Notice, please contact:
+
+
+        Email: dataprotectionofficer@ergo-travel.co.uk              Tel: +44 (0) 1403 788 510
+
+        Data Protection Officer, ERGO Travel Insurance Services Ltd, Afon House, Worthing Road,
+        Horsham, West Sussex RH12 1TL
+
+
+        Customer Experience, Holiday Extras, Ashford Road, Newingreen, Hythe, Kent, CT21 4JF
+
+
+9. How can you complain?
+If you have concerns about how we have used your personal information and wish to make a
+data protection complaint, please contact us in the first instance using the details below. We will
+acknowledge your complaint within 30 days and aim to provide a full response as soon as possible.
+
+
+        Email: dataprotectionofficer@ergo-travel.co.uk              Tel: +44 (0) 1403 788 510
+
+        Data Protection Officer, ERGO Travel Insurance Services Ltd, Afon House, Worthing Road,
+        Horsham, West Sussex RH12 1TL
+
+
+                                                   67
+
+## Page 68
+
+If you remain dissatisfied with our response, you have the right to escalate your complaint to the
+Information Commissioner's Office (ICO):
+
+        ICO website: https://www.ico.org.uk                 Helpline number: 0303 123 1113
+
+        Write to: Information Commissioner’s Office, Wycliffe House, Water Lane, Wilmslow, Cheshire
+        SK9 5AF
+
+
+                                                   68
+
+## Page 69
+
+Appendix
+Your Policy Tables
+You’ll find the following tables in this section:
+
+- Activities and sports that we can and can’t cover.
+- Countries that we do cover.
+
+
+                                                    69
+
+## Page 70
+
+Activities and sports that we can and can’t cover
+Before you go away, check what you are and aren’t covered for under your policy.
+
+Some hobbies, activities and sports are more dangerous than others. We would call these
+‘hazardous activities’.
+
+Please contact our Customer Services Team if you're unsure whether your planned activity is covered.
+For all 'hazardous activities', participation in competition is excluded unless agreed by us.
+
+          Email: insurance.queries@holidayextras.com          Tel: 0333 188 0411
+
+          Web: www.holidayextras.co.uk/insurance-support
+
+
+                       The following activities are covered under this policy
+Aerobics
+Athletics (amateur)
+Badminton
+Banana Boating
+Bar Work
+Baseball
+Basketball
+Board Sailing (Windsurfing)
+Body Boarding
+Boogie Boarding
+Bridge Walking e.g. Sydney Harbour Bridge
+Canoeing/Kayaking - up to Grade 2 rivers only
+Canopy / Tree Canopy Walking
+Cricket
+Curling
+Cycling (recreational only, no racing or competitions)
+Fell Running/Walking
+Fishing
+Football/Soccer (non competitive)
+Golf
+Gymnastics (no competitions)
+Hiking / Trekking / Walking under 2,500m
+Ice Skating
+Marathon Running
+Mountain Biking (recreational including general cross country and off road cycling)
+Non-Manual Work. This includes work such as administrative and clerical duties, bar and restaurant
+work, fruit picking (not using machinery), musicians and singers.
+
+
+                                                   70
+
+## Page 71
+
+Paddle Boarding
+Rambling
+Restaurant Work
+River Tubing (up to grade 2 rivers and not through caves)
+Roller Skating/Blading (wearing pads and helmets)
+Rowing (no racing)
+Safari (professionally organised tour)
+Sailing (inland waters or coastal waters within 12 miles of land)
+SCUBA Diving (down to 30m accompanied by a qualified diver or instructor)
+Sleigh Rides pulled by a horse or reindeer, as a passenger with a professional driver
+Snorkelling
+Softball
+Squash
+Surfing
+Swimming
+Swimming with Dolphins
+Tennis
+Trampolining
+Volleyball
+Water Polo
+Water Skiing (no jumping)
+Windsurfing / Sailboarding
+Zip Lining / Wiring
+
+
+                     The following activities are covered under this policy.
+           However, no cover is provided for Personal accident or for Personal liability.
+Abseiling (within organiser’s guidelines)
+Archery
+Black Water Rafting (within organiser's guidelines)
+Bungee Jumping (within organiser’s guidelines)
+Camel / Elephant Riding (booked through a reputable company and animal welfare is taken into
+consideration)
+Canoeing / Kayaking (up to grade 3 rivers only)
+Climbing (on a climbing wall only with belays)
+Electric Scooter Riding (organised tours only and a safety helmet must be worn)
+Fencing
+Flotilla Sailing (with professional leader)
+Go Karting
+Horse / Pony Riding / Trekking (protective headgear to be worn, excluding jumping trials, hunting,
+jumping and competitive riding)
+Hot Air Ballooning (organised pleasure rides only)
+
+
+                                                      71
+
+## Page 72
+
+Jet Boating (as a passenger only and no racing)
+Jet Skiing (no racing and providing on incidental basis and organised with a professional vendor and
+the appropriate safety equipment is worn)
+Motorcycling on-road as a mode of transport as a passenger or rider (you must be wearing a crash
+helmet and only if the motorcycle or electric motorcycle is under 125cc/11kw. The rider must have held
+a valid UK motorcycle licence for at least 3 years and be conviction free)
+Paint Balling (eye protection must be worn)
+Parascending over water
+Rap Jumping/Running (within organiser’s guidelines)
+River Tubing (no white water)
+Safari Trekking on foot (must be organised tour booked in the United Kingdom)
+Sea Kayaking
+Segway Riding (organised tours only and a safety helmet must be worn)
+Shooting - clay pigeon / pistol / small bore / target rifle (on a range within organisers guidelines)
+Sledging (by horse or reindeer as a passenger only)
+White Water Rafting (up to grade 3 within organiser’s guidelines)
+Zorbing (including Hydro Zorbing)
+
+
+We don’t cover the following activities:
+
+
+                               Excluded Hazardous Activities and Sports
+Base Jumping
+Big Game Hunting
+BMX Stunt Riding
+Bouldering
+Boxing
+Canyoning
+Caving / Pot Holing
+Coasteering
+Cycle Racing
+Flying except as a fare paying passenger in a licenced passenger carrying aircraft
+Free / High Diving
+Gliding
+Hang Gliding
+Judo / Karate / Martial Arts
+Kite Surfing
+Lacrosse
+Land Skiing (not on snow)
+Manual Work
+Micro Lighting
+
+
+                                                    72
+
+## Page 73
+
+Motorcycling as a rider or passenger on a machine over 125cc
+Motorcycling off-road as a rider or passenger
+Mountaineering
+Parachuting
+Paragliding
+Parascending over land
+Polo
+Professional / Semi Professional Sports
+Quad Biking
+Rock Climbing
+Sailing outside territorial waters
+SCUBA Diving below 30m
+Shark Cage Diving
+Shark Diving
+Tombstoning
+Track days using motorised vehicles
+Water Ski Jumping
+Weightlifting
+White Water Rafting (grade 4 and above)
+Winter Sports including skiing and snowboarding
+Wrestling
+
+Activities NOT listed above are NOT covered unless agreed by us. If you aren’t sure if your intended
+activity is covered, please telephone our customer helpline on 0333 188 0411.
+
+
+                                                   73
+
+## Page 74
+
+Countries that we do cover
+Your policy schedule will tell you what geographical area you’re covered for.
+
+Before you go away, check your travel plans against the countries that we do cover.
+
+Remember that we can’t cover any travel to areas where:
+- There is war and civil unrest; or
+- The Foreign, Commonwealth & Development Office (FCDO) has advised against all travel or all but
+   essential travel.
+
+
+ Geographical Area       Countries that we do cover
+
+ United Kingdom          England, Scotland, Wales, Northern Ireland, the Channel Islands and the Isle
+                         of Man.
+
+ Europe 1 (Europe        Albania, Andorra, Austria, the Azores, Belarus, Belgium, Bosnia Herzegovina,
+ exc. Spain, Cyprus,     Bulgaria, the Channel Islands, Croatia, the Czech Republic, Denmark,
+ Malta, Greece and       Estonia, the Faroe Islands, Finland (including Lapland), France, Gibraltar,
+ Turkey)                 Germany, Hungary, Iceland, Ireland (Republic), the Isle of Man, Italy, Kosovo,
+                         Latvia, Liechtenstein, Lithuania, Luxembourg, Madeira, Moldova, Monaco,
+                         Montenegro, the Netherlands, North Macedonia, Norway, Poland, Portugal,
+                         Romania, San Marino, Serbia, Slovakia, Slovenia, Sweden, Switzerland,
+                         Ukraine, the United Kingdom and the Vatican City.
+
+ Europe 2 (Europe        All countries listed in Europe 1 plus Cyprus, Greece (including the Greek
+ inc. Spain, Cyprus,     Islands), Malta, Spain (including the Balearic Islands and the Canary Islands)
+ Malta, Greece and       and Turkey.
+ Turkey)
+ Australia/New           Australia and New Zealand.
+ Zealand
+ Worldwide               All countries of the world EXCEPT:
+ (excluding USA,         Anguilla, Antigua and Barbuda, Aruba, Bahamas, Barbados, Bermuda,
+ Canada, Mexico and      Bonaire, St Eustatius and Saba, Canada, Caribbean Islands, Cayman Islands,
+ the Caribbean)          Cuba, Curaçao, Dominica, Dominican Republic, Grenada, Guadeloupe, Haiti,
+                         Jamaica, Martinique, Mexico, Montserrat, Netherlands Antilles, Puerto Rico,
+                         St Barthelemy / St Barts, St Croix, St Kitts and Nevis, St Lucia, St Maarten/St
+                         Martin, St Pierre and Miquelon, St Thomas, St Vincent and the Grenadines,
+                         Trinidad and Tobago, Turks and Caicos Islands, the United States of America,
+                         Virgin Islands (United Kingdom), Virgin Islands (US).
+
+ Worldwide               All countries.
+ (including USA,
+ Canada, Mexico and
+ the Caribbean)
+
+
+                                                   74
+
+## Page 75
+
+75
+
+
+     www.holidayextras.co.uk
+
+
+                               HX_Backpacker_AGG_PW_02_22-07-2026
