@@ -18,6 +18,12 @@ python3 scripts/convert_wordings.py "/path/to/Wordings"
 
 PDF text is extracted with `pdftotext`. Word paragraphs, tables and comments are read directly from the DOCX package. Spreadsheet sheets are rendered as Markdown tables. Cover images receive an indexed Markdown metadata record because they contain no policy wording text.
 
+The current customer-facing documents use a separate web-friendly refresh step. It removes PDF page furniture and layout indentation so that the wording renders responsively instead of as page cards and code blocks:
+
+```sh
+python3 scripts/refresh_live_policy_documents.py "/path/to/Wordings"
+```
+
 ## Using from stories
 
 Stories should retrieve only the wording or relevant section they require through the `llm-fn-proxy` integration. Do not insert the complete archive into a story prompt.
