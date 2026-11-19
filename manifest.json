@@ -2217,6 +2217,20 @@
     "hadExtractionWarnings": false
   },
   {
+    "id": "live-policy-documents/22-07-2026-onwards/ergocruise1026-fdstacked",
+    "title": "Holiday Extras Cruise Travel Insurance Policy Wording",
+    "path": "wordings/live-policy-documents/22-07-2026-onwards/ergocruise1026-fdstacked.md",
+    "sourcePath": "Live Policy Documents/22-07-2026 - Onwards/ERGOCruise1026_FDstacked.pdf",
+    "sourceFormat": "pdf",
+    "sourceSha256": "0f71ad62045eb011a8f0509c00e2f2e1281cb1661359b7d0ebd978f5dc43ed6f",
+    "sourceUrl": "https://www.holidayextras.com/images/groups/insurancemagenta/policy_wording/ERGOCruise1026_FDstacked.pdf",
+    "duplicateOf": null,
+    "characters": 246211,
+    "error": null,
+    "pages": 105,
+    "hadExtractionWarnings": true
+  },
+  {
     "id": "non-cruise/14-04-2026-21-07-2026/ergo0426-fdstacked",
     "title": "ERGO0426_FDstacked",
     "path": "wordings/non-cruise/14-04-2026-21-07-2026/ergo0426-fdstacked.md",
