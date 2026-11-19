@@ -2189,6 +2189,34 @@
     "hadExtractionWarnings": true
   },
   {
+    "id": "live-policy-documents/22-07-2026-onwards/ergo1026-fdstacked",
+    "title": "Holiday Extras Travel Insurance Policy Wording",
+    "path": "wordings/live-policy-documents/22-07-2026-onwards/ergo1026-fdstacked.md",
+    "sourcePath": "Live Policy Documents/22-07-2026 - Onwards/ERGO1026_FDstacked.pdf",
+    "sourceFormat": "pdf",
+    "sourceSha256": "2fdbd399c7f0133cd3fdfe993f94e5249c25923d7aa6f5c0abd22c99feaa1e6d",
+    "sourceUrl": "https://www.holidayextras.com/images/groups/insurancemagenta/policy_wording/ERGO1026_FDstacked.pdf",
+    "duplicateOf": null,
+    "characters": 238844,
+    "error": null,
+    "pages": 103,
+    "hadExtractionWarnings": true
+  },
+  {
+    "id": "live-policy-documents/22-07-2026-onwards/ergoipidbronze1026-fdstacked",
+    "title": "Bronze Travel Insurance Product Information",
+    "path": "wordings/live-policy-documents/22-07-2026-onwards/ergoipidbronze1026-fdstacked.md",
+    "sourcePath": "Live Policy Documents/22-07-2026 - Onwards/ERGOIPIDBronze1026_FDstacked.pdf",
+    "sourceFormat": "pdf",
+    "sourceSha256": "28892272d8d38535f9ccec9ab2d7068a3d0a3d2944cca231208d9aecb0e1b8a8",
+    "sourceUrl": "https://www.holidayextras.com/images/groups/insurancemagenta/policy_wording/ERGOIPIDBronze1026_FDstacked.pdf",
+    "duplicateOf": null,
+    "characters": 16040,
+    "error": null,
+    "pages": 4,
+    "hadExtractionWarnings": false
+  },
+  {
     "id": "non-cruise/14-04-2026-21-07-2026/ergo0426-fdstacked",
     "title": "ERGO0426_FDstacked",
     "path": "wordings/non-cruise/14-04-2026-21-07-2026/ergo0426-fdstacked.md",
